@@ -20,8 +20,9 @@ layout: default
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[1]</span>:</font>
-Selbstwertschätzung und Alleinsein
+<font size="-1">aus <span style="color:red ">[1]</span>:</font>  
+**Selbstwertschätzung und Alleinsein**
+
 &nbsp;
 
 >"Um aufmerksam für den anderen da zu sein, auch aus der Distanz heraus, ist es gut
@@ -46,3 +47,37 @@ liebevoller sein.
 > "Das Gefühl, man selbst zu sein, rechtfertigt die Existenz. Das ist der höchste
 > Gipfel der Freude den die Liebe schenkt, wie gering sie in Wirklichkeit auch sein mag."
 > <font size="-1">(Jean-Paul Sartre)</font>
+
+&nbsp;
+
+> "Deine Gedanken haben dich zu dem gemacht, was du bist und sie machen aus dir, was
+> du sein wirst - von heute an."  
+> <font size="-1">(Catherine Ponder)</font>
+
+&nbsp;
+
+Wer sich selber wertschätzt, empfindet sich im Zusammensein mit anderen eher als sym-
+pathisch, ja er geht auch davon aus, dass die anderen ihn mit Respekt und Liebe be-
+trachten. Wer sich selbst nicht wertschätzt, wird dagegen niemals glauben können, dass
+er die Liebe und den Respekt anderer Menschen verdient. Wie hoch unser Selbstwert ist,
+hängt davon ab, wie hoch wir uns selbst und unserer persönlichen Qualitäten einschätzen.
+Unsere Selbstwertschätzung speist sich nicht aus dem Vergleich mit anderen, sondern
+kann nur an den eigenen Fortschritten gemessen werden. Wer über eine hohe Selbstwert-
+schätzung verfügt, wird also zu sich sagen: "Ich sehe, dass ich toleranter, unterneh-
+mungslustiger oder liebenserter bin als früher." Wer hingegen nur ein geringes Selbst-
+wertgefühl hat, zieht seine Urteile eher aus dem Vergleich mit anderen, wobei er
+selbst meist schlechter abschneidet.
+
+&nbsp;
+
+> "Es geht darum, diese innere Sprache zu lernen. Ein guter Teil der Existenz
+> ereignet sich zwischen *Ich* und *Selbst*. Erforsche also das Gelände und hole
+> so viel heraus wie möglich."  
+> <font size="-1">(Jean-Louis Servan Schreiber)</font>
+
+&nbsp;
+
+> "Die schlimmste Einsamkeit besteht nicht im Alleinsein, sondern darin, sich selbst
+> ein unerträglicher Begleiter zu sein. Die brutalste Einsamkeit ist es, sich in der
+> eigenen Gegenwart zu langweilen."  
+> <font size="-1">(Jacques Salome)</font>

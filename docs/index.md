@@ -8,8 +8,6 @@
 layout: home
 ---
 
-# Quellen
-
 [Eckhart Tolle - Sammlungen](./eTolle.html)
 
 [Hermann Hesse - Sammlungen](./hHesse.html)

@@ -10,6 +10,10 @@ layout: home
 
 # Quellen
 
-[ Eckhart Tolle - Sammlungen](./eTolle.html)
+[Eckhart Tolle - Sammlungen](./eTolle.html)
 
-## J.Monbourquette - Psychologie und Spiritualität
+[Hermann Hesse - Sammlungen](./hHesse.html)
+
+[Wayne Dyer - Sammlungen](./wDyer.html)
+
+[Diverse](./various.html)

@@ -56,16 +56,16 @@ liebevoller sein.
 
 &nbsp;
 
-Wer sich selber wertschätzt, empfindet sich im Zusammensein mit anderen eher als sym-
-pathisch, ja er geht auch davon aus, dass die anderen ihn mit Respekt und Liebe be-
-trachten. Wer sich selbst nicht wertschätzt, wird dagegen niemals glauben können, dass
+Wer sich selber wertschätzt, empfindet sich im Zusammensein mit anderen eher als sympathisch,
+ja er geht auch davon aus, dass die anderen ihn mit Respekt und Liebe betrachten. Wer 
+sich selbst nicht wertschätzt, wird dagegen niemals glauben können, dass
 er die Liebe und den Respekt anderer Menschen verdient. Wie hoch unser Selbstwert ist,
 hängt davon ab, wie hoch wir uns selbst und unserer persönlichen Qualitäten einschätzen.
 Unsere Selbstwertschätzung speist sich nicht aus dem Vergleich mit anderen, sondern
-kann nur an den eigenen Fortschritten gemessen werden. Wer über eine hohe Selbstwert-
-schätzung verfügt, wird also zu sich sagen: "Ich sehe, dass ich toleranter, unterneh-
-mungslustiger oder liebenserter bin als früher." Wer hingegen nur ein geringes Selbst-
-wertgefühl hat, zieht seine Urteile eher aus dem Vergleich mit anderen, wobei er
+kann nur an den eigenen Fortschritten gemessen werden. Wer über eine hohe Selbstwertschätzung 
+verfügt, wird also zu sich sagen: "Ich sehe, dass ich toleranter, unternehmungslustiger 
+oder liebenserter bin als früher." Wer hingegen nur ein geringes Selbstwertgefühl hat, 
+zieht seine Urteile eher aus dem Vergleich mit anderen, wobei er
 selbst meist schlechter abschneidet.
 
 &nbsp;

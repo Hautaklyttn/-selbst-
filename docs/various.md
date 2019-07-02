@@ -32,7 +32,7 @@ layout: default
 
 &nbsp;
 
-Ein Mensch mit starker Selbstwertschätzung kennt den Unterschied zwischen Isolation
+[...] Ein Mensch mit starker Selbstwertschätzung kennt den Unterschied zwischen Isolation
 und Alleinsein. Isolation bedeutet, sich anderen gegenüber zu verschließen aus Angst
 überrant zu werden; Alleinsein ist ein strategischer Rückzug aus dem sozialen Leben,
 um wieder gegenwärtiger für andere zu werden. Isolation ereignet sich, wenn jemand ein
@@ -41,7 +41,8 @@ wird innerer Frieden erfahrbar. Die Isolation fürchtet Verletzlichkeit, das All
 akzeptiert Verletzlichkeit und Vertrautheit mit sich selbst.  
 So seltsam es klingt: Das Alleinsein vertieft unsere Gegenwärtigkeit für andere. Wer
 dieses Gefühl der Ganzheit und des Friedens erlabt hat, kann anderen gegenüber
-liebevoller sein.  
+liebevoller sein. [...]  
+
 &nbsp;
 
 > "Das Gefühl, man selbst zu sein, rechtfertigt die Existenz. Das ist der höchste
@@ -56,7 +57,7 @@ liebevoller sein.
 
 &nbsp;
 
-Wer sich selber wertschätzt, empfindet sich im Zusammensein mit anderen eher als sympathisch,
+[...] Wer sich selber wertschätzt, empfindet sich im Zusammensein mit anderen eher als sympathisch,
 ja er geht auch davon aus, dass die anderen ihn mit Respekt und Liebe betrachten. Wer 
 sich selbst nicht wertschätzt, wird dagegen niemals glauben können, dass
 er die Liebe und den Respekt anderer Menschen verdient. Wie hoch unser Selbstwert ist,
@@ -66,7 +67,7 @@ kann nur an den eigenen Fortschritten gemessen werden. Wer über eine hohe Selbs
 verfügt, wird also zu sich sagen: "Ich sehe, dass ich toleranter, unternehmungslustiger 
 oder liebenserter bin als früher." Wer hingegen nur ein geringes Selbstwertgefühl hat, 
 zieht seine Urteile eher aus dem Vergleich mit anderen, wobei er
-selbst meist schlechter abschneidet.
+selbst meist schlechter abschneidet. [...]
 
 &nbsp;
 

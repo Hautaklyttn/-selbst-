@@ -34,7 +34,7 @@ Wende während du dein Leben lebst, nicht hundert Prozent deiner Aufmerksamkeit 
 und deinem Denken zu. Lenke einen Teil davon nach innen. Fühle den inneren Körper auch während
 deiner alltäglichen Aktivitäten und ganz besonders in deinem Kontakt zur Natur. Spüre die Stille
 im tiefsten Innern. Halte das Tor offen.  
-Es ist durchaus möglich, sich sein Leben lang des Michtmanifesten bewusst zu sein. Du spürst es
+Es ist durchaus möglich, sich sein Leben lang des Nichtmanifesten bewusst zu sein. Du spürst es
 unterschwellig als tiefes Gefühl des Friedens, als eine Stille, die dich nie verlässt, was immer
 auch da draußen geschehen mag. Du wirst zur Brücke zwischen dem Nichtmanifesten und dem
 Manifesten, zwischen Gott und der Welt. Das ist der Zustand der Verbundenheit mit dem Ursprung,

@@ -100,12 +100,12 @@ nicht lieben. [...]
 &nbsp;
 
 > "Der Wert eines Menschen bemisst sich nach der Achtung, die er sich selbst entgegenbringt".  
-> (Francais Rabelais)
+> <font size="-1">(Francais Rabelais)</font>
 
 &nbsp;
 
 > "Jedes Reich, das mit sich uneins ist, wird verwüstet."  
-> (Matthäus 12,25)
+> <font size="-1">(Matthäus 12,25)</font>
 
 &nbsp;
 

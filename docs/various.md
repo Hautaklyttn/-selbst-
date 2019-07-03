@@ -21,14 +21,11 @@ layout: default
 &nbsp;
 
 <font size="-1">aus <span style="color:red ">[1]</span>:</font>  
-**Selbstwertschätzung und Alleinsein**
 
 &nbsp;
 
->"Um aufmerksam für den anderen da zu sein, auch aus der Distanz heraus, ist es gut
-> einen Zwischenraum zu wahren. Denn je weniger wir mit dem anderen verstrickt sind,
-> desto besser können wir ihm zuhören."  
-> <font size="-1">(Michele Salmagne)</font>
+> "Werde, wer du bist."  
+> <font size="-1">(Friedrich Nietzsche)</font>
 
 &nbsp;
 
@@ -116,4 +113,65 @@ und kulturell vermittelten Bedingtheit zu lösen, die ständig auf das Ich proje
 auch, unser eigenes Leben zu führen und dabei den wahrsten und tiefsten Neigungen unseres Wesens zu
 folgen, statt blind dem Diktat unserer Persönlichkeit oder des sozialen Selbst zu folgen. Als autonome
 Wesen treffen wir Entscheidungen, in denen sich unsere Identität spiegelt und unsere persönliche
-Mission sich erfüllt. [...]
+Mission sich erfüllt. [...]  
+
+[...] Das falsche Selbst wird geboren aus diesen ersten Anpassungsbemühungen, die am frustrierenden
+widersprüchlichen Verhalten der Mutter scheitern. Weil diese primäre Beziehung durch wiederkehrende
+Enttäuschungen gestört wird, baut das Kind einen Schutzwall. Es kann keine gesunde Persönlichkeit, kein
+angepasstes soziales Selbst aufbauen. Stattdessen versucht das Kind, die Welt, die es als bedrängend,
+zusammenhanglos und bedrohlich erlebt, auszutricksen. Diese ungesunde Anpassung ist alles andere als gut
+für das bewusste Ich, vielmehr führt die zur Entfremdung vom wahren Selbst.  
+Das Kind - und später Heranwachsende - erschafft sich nach diesen Anfängen mit der Zeit eine geradezu
+waffenstarrende Persönlichkeit und wagt es nicht mehr, seine wahren Emotionen auszudrücken. Es tut alles,
+um nur noch das zu zeigen, was seiner Meinung nach von der Umwelt akzeptiert wird. Die Transaktionsanalyse
+spricht im Zusammenhang dieser Überlebenstaktik von "betrügerischen Gefühlen". Ein junger Mensch, der
+dieses Vorgehen wählt, bedient sich der Manipulation. Das Tragische daran ist, dass er eine Chance
+verpasst, authentischen Selbstwert zu entwickeln.  
+Manche Menschen werden sich ihres falschen Selbst bewusst, wenn sie mit anderen zusammen sind, die
+wirklich sie selbst sind. Anfangs haben sie das vage Gefühl, ein Betrüger zu sein, und früher oder
+später wird ihnen klar, dass ihre Manipulationen zwecklos oder gar gefährlich sind. [...]  
+
+&nbsp;
+
+Ein Beispiel: *"Der Von Selbstwertschätzung Besessene"*  
+Eine subtile Form des Narzissmus scheint zurzeit besonders populär zu sein: die übertriebene Beschäftigung
+mit dem Selbst. Wer sich in den Klauen dieses Zwangsverhalten befindet, bereitet sich selbst unnötige
+Schwierigkeiten. Er ängstigt sich um seine Gesundheit, träumt nur von Ruhe, Urlaub und Erholung. Er sorgt
+sich, dass er nicht genügend vorankommt bei der Entwicklung seines Selbstwerts, und ist ständig vollauf
+beschäftigt mit seiner persönlichen Erfüllung. Er wird überempfindlich und hypochondrisch.  
+Diese zwanghafte Beschäftigung mit dem Selbst kann jede wahre Selbsterfüllung verhindern. Stängige,
+skrupelöse Selbstprüfung ist ungesund, führt oft zu egozentrischer Nabelschau und kann darüber hinaus
+die natürlichen physiologischen Reflexe wie Verdauung und Herzrhythmus stören. Die Entwicklung des Selbst
+wird zur Last. Statt über das gute Leben nachzudenken, verwickelt sich ein solcher Mensch in eine
+gesundheitsschädliche kritische Überprüfung seiner selbst und seiner Handlungen. Oft wurden die elementaren
+Bedürfnisse des Betreffenden in der Kindheit nicht erfüllt, sodass er nicht genug Vertrauen in die
+Spontanität des Lebens hat, in seinen Instinkt und seine Intuition, in seine Sehnsucht zu lieben und
+geliebt zu werden.
+
+&nbsp;
+
+[...] Je mehr man sich selbst zu lieben lernt, desto mehr lernt man auch, die anderen zu lieben. Dieses
+Paradox verblüfft mich immer wieder. Auch die Verwirklichung der eigenen Berufung hat etwas Paradoxes
+an sich. Wer seine eigene Lebensaufgabe findet und sich ihr ganz hingibt, leistet damit unvermeidlich
+auch der Gemeinschaft seiner Mitmenschen einen wichtigen Dienst. Da man seine eigenen Talente nicht im
+geschlossenen Kämmerlein in die Tat umsetzen kann, geht es garnicht anders, als dass auch andere etwas
+davon haben. Der Geist der Kreativität der bei der Verwirklichung der eigenen Lebensaufgabe im Spiel ist,
+wirkt auf die Umgebung anziehend. "Sobald sich eine Blüte öffnet, zieht sie die Bienen an", schrieb der
+Dichter Kabir. Es gibt nichts, was mehr anzieht und beflügelt als der Anblick eines Menschen, der seine
+wertvollsten Kräfte aufbietet und in die Tat umsetzt.  
+Auch William James spricht davoin, wie sich unser innerer Zustand auf unser äußeres soziales Umfeld
+ausworkt: "Die große Revolution, die unsere Generation erlebt hat, besteht in der Entdeckung, dass der
+Mensch, indem er seine inneren Einstellungen ändert, auch die äußeren Umstände seines Lebens zu verändern
+vermag."  
+Wenn man also seine Lebensaufgabe entdeckt und sich daran macht, sie tatkräftig ins Werk zu setzen, hat
+das unvermeidlich eine geheimnisvolle und unvorhersehbare Ausstrahlung auf das ganze eigene Leben und
+dann auch auf die gesamte eigene Umgebung zur Folge. [...]
+
+&nbsp;
+
+>"Um aufmerksam für den anderen da zu sein, auch aus der Distanz heraus, ist es gut
+> einen Zwischenraum zu wahren. Denn je weniger wir mit dem anderen verstrickt sind,
+> desto besser können wir ihm zuhören."  
+> <font size="-1">(Michele Salmagne)</font>
+
+&nbsp;

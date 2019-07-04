@@ -4,15 +4,15 @@ layout: default
 
 [Back](./)
 
-<span style="color:red ">[1]</span> Jean Monbourquette - Psychologie und Spiritualität  
-<span style="color:red ">[2]</span> T. Nhat Hanh - Das Wunder der Achtsamkeit  
-<span style="color:red ">[3]</span> T. Hohensee - Gelassenheit beginnt im Kopf  
-<span style="color:red ">[4]</span> Epikur - Philosophie des Glücks  
-<span style="color:red ">[5]</span> T. Strässle - Gelassenheit  
-<span style="color:red ">[6]</span> U. Ott - Meditation für Skeptiker  
-<span style="color:red ">[7]</span> M. Bordt - Die Kunst sich selbst zu verstehen  
-<span style="color:red ">[8]</span> M.Serrano - C.G. Jung und Hermann Hesse  
-<span style="color:red ">[9]</span> M.Williams - Das Achtsamkeitstraining  
+<span style="color:red ">[1]</span> Jean Monbourquette - *Psychologie und Spiritualität*  
+<span style="color:red ">[2]</span> T. Nhat Hanh - *Das Wunder der Achtsamkeit*  
+<span style="color:red ">[3]</span> T. Hohensee - *Gelassenheit beginnt im Kopf*  
+<span style="color:red ">[4]</span> Epikur - *Philosophie des Glücks*  
+<span style="color:red ">[5]</span> T. Strässle - *Gelassenheit*  
+<span style="color:red ">[6]</span> U. Ott - *Meditation für Skeptiker*  
+<span style="color:red ">[7]</span> M. Bordt - *Die Kunst sich selbst zu verstehen*  
+<span style="color:red ">[8]</span> M.Serrano - *C.G. Jung und Hermann Hesse*  
+<span style="color:red ">[9]</span> M.Williams - *Das Achtsamkeitstraining*  
 
 &nbsp;
 
@@ -175,3 +175,89 @@ dann auch auf die gesamte eigene Umgebung zur Folge. [...]
 > <font size="-1">(Michele Salmagne)</font>
 
 &nbsp;
+
+[...] <span style="color:red ">Bitte behalten Sie beim Lesen diesen Unterschied zwischen Selbstwertschätzung
+und Selbstwerdung im Auge. Selbstwertschätzung hat zu tun mit den Bildern, Worten und Haltungen, die wir
+heranziehen um uns ein Urteil über uns selbst zu bilden. Selbstwerdung bedeutet, dass wir unsere Seele
+entdecken und sie ins Zentrum unserer Aufmerksamkeit rücken. Selbstwertschätzung ist ein psychologisches
+Phänomen und entspringt dem Willen, Selbstwerdung ist ein sprirituelles Phänomen und hat seinen Ursprung im
+Erwachen der Aktivität des (höheren) Selbst.</span> [...]
+&nbsp;
+
+[...] Es liegt eine gewisse Weisheit in der Kunst, den rechten Zeitpunkt zu erkennen, zu dem wir aufhören
+müssen, die Dinge aktiv zu bewerkstelligen, um uns für das Mögliche zu öffnen. Wer sich der Selbstwerdung
+öffnen will, braucht dazu andere Strategien als die, mit denen der Selbstwert aufgebaut wird - man braucht
+dazu die Ressourcen des Unbewussten. Diese Strategien bewirken, dass man sich in einen anderen
+Bewusstseinszustand versetzt, namentlich durch Selbsthypnose, Meditation, Visualisierung oder Affirmation.
+Vor allem aber ist es nötig, Offenheit gegenüber den Energien und Symbolen des Selbst zu zeigen. Diese
+bringen die Aktivität des Selbst voran, das Wachstumsmöglichkeiten enthält, über die das Ego nicht verfügt. [...]
+&nbsp;
+
+[...] Das Selbst ist eine umfassendere, wichtigere Steuerungszentrale als das bewusste Ich. Oft glauben
+Menschen fälschlich, dass das Ego und seine Persona den essentiellen Teil der Persönlichkeit bilden. Sie
+verkennen dabei, dass es eine höhere Autorität gibt: das Selbst, das die Entwicklung des Ich bestimmt. Die
+Entdeckung des Selbst was für die Psychologie ebenso wichtig wie die Kopernikanische Wende, die den
+Mittelpunkt des Universums von der Erde auf die Sonne verschob. Durch die Betonung dieser zentralen Stellung
+des Selbst wirkte C.G.Jung dem verbreiteten Glauben entgegen, das bewusste Ich sei das primäre, für alle
+Entscheidungen verantwortliche Zentrum des Menschen. Das bewusste Ich ist nichts als ein Satellit des Selbst,
+durch das es erschaffen und gelenkt wird.  
+Edward Whitmont räumt dem Selbst eine Schlüsselrolle bei der Entwicklung des Individuums ein: "Man kann den
+Modus operandi des Selbst vergleichen mit dem Mittelpunkt eines energetischen Feldes, das darauf abzielt, ein
+Lebens- und Persönlichkeitsmuster zu verwirklichen, das als Möglichkeit bereits a priori gegeben ist." [...]
+&nbsp;
+
+[...] Das Selbst steht für ein Paradox: Auf der einen Seite repräsentiert es das verborgene, wahre, echte
+Wesen, das der Befreiung bedarf, auf der anderen Seite repräsentiert es die Verbindung mit dem Universum.
+Es steht für das Individuum in seiner Einzigartigkeit, währen es gleichzeitig dieses Individuum mit dem
+kollektiven Unbewussten verbindet. Die Erfüllung des Selbst,"man selbst werden", verwirklicht die persönlichsten
+und originellsten Seiten des Menschen, gleichzeitig reflektiert und umfasst es tatsächlich das ganze Universum.
+Jung formuliert es so: "Das Selbst umfasst in sich unendlich mehr als nur das Ich, das hat die Symbolik immer
+gezeigt. Es ist ebenso sehr das andere und die anderen wie das Ich. Die Individuation schließt die Welt nichts
+aus, sondern ein."  
+In diesem Augenblick hat das Selbst auf mystische Weise Anteil am Universum. Wer hat in besonderen Momenten
+nicht schon einmal intime Gemeinschaft mit der Außenwelt erlebt, selbst mit unbelebten Dingen? Das Selbst
+ermöglicht uns auch, eine "animistische" Haltung zur Natur einzunehmen, ein diametraler Gegensatz zu dem
+rationalen, technischen Zugang, der versucht, die Natur zu unterwerfen. Das Selbst ist eher an einem
+Zusammenwirken mit der Natur interessiert und weniger daran, die zu kontrollieren, es möchte Mit-Schöpfer
+werden.  
+Im hohen Alter sprach Jung über dieses Vertrauen: "Zuzeiten bin ich ausgebreitet in die Landschaft und in
+die Dinge und lebe selber in jedem Baum, im Plätschern der Wellen, in den Wolken, den Tieren, die kommen und
+gehen. Hier ist Raum für das raumlose Reich des Hintergrunds." [...]
+
+&nbsp;
+
+<font size="-1">aus <span style="color:red ">[4]</span>:</font>
+&nbsp;
+
+Nicht Aufschneider oder Wortkünstler und auch nicht Schausteller der bei der Masse heftig begehrten Bildung
+bringt die Naturwissenschaft hervor, sondern selbstbewusste und unabhängige Menschen, die auf ihre eigenen
+inneren Werte und nicht auf Äußerlichkeiten stolz sind. (GV 45)  
+&nbsp;
+
+> Wer die innere Ruhe besitzt, fällt weder sich noch anderen zur Last.  
+> <font size="-1">(Epikur, GV 79)</font>
+
+&nbsp;
+
+Weder größter zur Verfügung stehender Reichtum noch Ansehen und Bewunderung bei der Masse noch etwas anderes,
+das aus unbegrenzten Ursachen entsteht, kann die Unruhe der Seele beseitigen und nennenswerte Freude
+verschaffen. (GV 81)  
+&nbsp;
+
+Sagen nicht Epikureer, dass der Siegeskranz der inneren Ruhe mit den hohen Ämtern unvergleichbar sei?
+(556 Ursener)  
+&nbsp;
+
+[...] Das höchste Glück sieht Epikur in der Lust (hedone), das größte Übel im Schmerz. Lust besteht
+jedoch nicht, wie es Epikur und dem von ihm vertretenen Hedonismus zum Vorwurf gemacht wurde, in einem
+maßlosen Prassen, in Völlerei und ungehemmten Genuß; vielmehr definiert Epikur Lust als Schmerzlosigkeit
+(apoma) und als vollkommene seelische Ausgeglichenheit (ataraxia). Epikur nennt diesen Zustand, der nicht
+mehr gesteigert werden kann, statische Lust (kastematike hedone), während der Lustgewinn durch die bloße
+Befriedigung von Beürfnissen wie Essen und Trinken kinetisch "in Bewegung", bezeichnet wird. Lust kann
+auch rein geistlich genossen werden: in der Erinnerung an frühere körperliche Genüsse, durch die man
+Phasen der Unlust überstehen oder gar von Schmerz oder selbst körperlichen Qualen ablenken kann.  
+Um Schmerzlosigkeit und seelische Ausgeglichenheit zu erreichen, gilt es, stets die Folgen eines Genusses
+genau abzuwägen und sich die Frage zu stellen, ob der momentane Lustgewinn künftig nicht doch das Glück
+störende Folgen haben könnte. Dieses "Lustkalkül" führt, wenn es konsequent praktiziert wird, zu einem
+asketischen Leben: Epikur folgt in diesem Punkt der Volksweisheit "Nichts im Übermaß!" (meden agan) und
+dem alten Ideal der Ausgeglichenheit und des rechten Maßes (sophrosyne). [...]

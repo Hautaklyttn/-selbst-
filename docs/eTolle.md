@@ -4,10 +4,10 @@ layout: default
 
 [Back](./)
 
-<span style="color:red ">[1]</span> Leben im Jetzt  
-<span style="color:red ">[2]</span> Jetzt! Die Kraft der Gegenwart  
-<span style="color:red ">[3]</span> Stille Spricht  
-<span style="color:red ">[4]</span> Eine neue Erde  
+<span style="color:red ">[1]</span> *Leben im Jetzt*  
+<span style="color:red ">[2]</span> *Jetzt! Die Kraft der Gegenwart*  
+<span style="color:red ">[3]</span> *Stille Spricht*  
+<span style="color:red ">[4]</span> *Eine neue Erde*  
 
 &nbsp;
 

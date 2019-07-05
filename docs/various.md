@@ -196,7 +196,7 @@ bringen die Aktivität des Selbst voran, das Wachstumsmöglichkeiten enthält, �
 [...] Das Selbst ist eine umfassendere, wichtigere Steuerungszentrale als das bewusste Ich. Oft glauben
 Menschen fälschlich, dass das Ego und seine Persona den essentiellen Teil der Persönlichkeit bilden. Sie
 verkennen dabei, dass es eine höhere Autorität gibt: das Selbst, das die Entwicklung des Ich bestimmt. Die
-Entdeckung des Selbst was für die Psychologie ebenso wichtig wie die Kopernikanische Wende, die den
+Entdeckung des Selbst war für die Psychologie ebenso wichtig wie die Kopernikanische Wende, die den
 Mittelpunkt des Universums von der Erde auf die Sonne verschob. Durch die Betonung dieser zentralen Stellung
 des Selbst wirkte C.G.Jung dem verbreiteten Glauben entgegen, das bewusste Ich sei das primäre, für alle
 Entscheidungen verantwortliche Zentrum des Menschen. Das bewusste Ich ist nichts als ein Satellit des Selbst,
@@ -208,7 +208,7 @@ Lebens- und Persönlichkeitsmuster zu verwirklichen, das als Möglichkeit bereit
 
 [...] Das Selbst steht für ein Paradox: Auf der einen Seite repräsentiert es das verborgene, wahre, echte
 Wesen, das der Befreiung bedarf, auf der anderen Seite repräsentiert es die Verbindung mit dem Universum.
-Es steht für das Individuum in seiner Einzigartigkeit, währen es gleichzeitig dieses Individuum mit dem
+Es steht für das Individuum in seiner Einzigartigkeit, während es gleichzeitig dieses Individuum mit dem
 kollektiven Unbewussten verbindet. Die Erfüllung des Selbst,"man selbst werden", verwirklicht die persönlichsten
 und originellsten Seiten des Menschen, gleichzeitig reflektiert und umfasst es tatsächlich das ganze Universum.
 Jung formuliert es so: "Das Selbst umfasst in sich unendlich mehr als nur das Ich, das hat die Symbolik immer

@@ -146,11 +146,11 @@ ich bin ein schlechter Sänger und Prediger, aber Wahrheiten veralten nicht und 
 ob sie nun in einer  Wüste gepredigt, in einem Gedicht gesungen oder in einer Zeitung gedruckt werden. [...]  
 
 [...] Ich verstehe und billige es, wenn ein Mensch viel von sich selbst verlangt, wenn er aber diese Forderung
-auf andere ausdehnt und sein Leben zum "Kampf" für das Gute macht, so muss ich mich des Urteils darüber
+auf andere ausdehnt und sein Leben zum "Kampf für das Gute" macht, so muss ich mich des Urteils darüber
 enthalten, denn ich halte vom Kampf, Aktion, Opposition nicht das mindeste; ich glaube zu wissen, dass jeder
 Wille zur Änderung der Welt zu Krieg und Gewalt führt, und kann darum mich keiner Opposition anschließen,
 denn ich billige die letzten Konsequenzen nicht, und halte das Unrecht und die Bosheit auf Erden nicht für
-heilbar. Was wir ändern können und sollten, das sind wir selber: unsere Ungeduld, unser Egoismus (auch der
+heilbar. Was wir ändern können und sollten, das sind wir selber: Unsere Ungeduld, unser Egoismus (auch der
 Geistige), unser Beleidigtsein, unser Mangel an Liebe und Nachsicht. Jede andere Änderung der Welt, auch
 wenn sie von den besten Absichten ausgeht, halte ich für nutzlos. [...]  
 
@@ -159,5 +159,9 @@ wenn sie von den besten Absichten ausgeht, halte ich für nutzlos. [...]
 > "Wenn es irgend etwas gibt, was ich den Lesern raten möchte, so ist es dies: die Menschen zu lieben,
 > auch die Schwachen, auch die Nichtnützlichen, nicht aber sie zu richten."  
 > <font size="-1">(Hermann Hesse)</font>
+
+&nbsp;
+
+<font size="-1">aus <span style="color:red ">[5]</span>:</font>  
 
 &nbsp;

@@ -165,3 +165,53 @@ wenn sie von den besten Absichten ausgeht, halte ich für nutzlos. [...]
 <font size="-1">aus <span style="color:red ">[5]</span>:</font>  
 
 &nbsp;
+
+Was du im Leben leistest, und zwar nicht nur als Künstler, sondern ebenso als Mensch, als Mann und Vater,
+Freund und Nachbar etc, das wird vom ewigen >>Sinn<< der Welt, von der ewigen Gerechtigkeit nicht nach
+irgendeinem festen Maß gemessen, sondern nach deinem einmaligen und persönlichen. Gott wird dich, wenn er
+dich richtet, nicht fragen: "Bist du ein Hodler geworden, oder ein Picasso, oder ein Pestalozzi oder Gotthelf?"
+Sondern er wird fragen: "Bist du auch wirklich der gewesen und geworden, zu dem du die Anlagen und Erbschaften
+mitbekommen hast?" Und da wird niemals ein Mensch ohne Scham, oder Schrecken seines Lebens und seiner Irrwege
+gedenken, er wird höchstens sagen können: "Nein, ich bin es nicht geworden, aber ich habe es wenigstens nach
+Kräften versucht." Und wenn er das aufrichtig sagen kann, dann ist er gerechtfertigt und hat die Probe
+bestanden.  
+Wenn solche Vorstellungen wie >>Gott<<  oder >>ewiger Richter<< etc, dich stören, so kannst du sie weglassen,
+auf sie kommt es nicht an. Es kommt einzig darauf an, dass jedem von uns ein Erbe und eine Aufgabe mitgegeben
+ist, er hat von Vater- und Mutterseite, von vielen Ahnen her, von seinem Volk, seiner Sprache her gewisse
+Eigenschaften, gute und böse, angenehmen und schwierige geerbt, Talente und Mängel, und all dies zusammen
+ist er, und dies Einmalige hat er zu verwalten und zu Ende zu leben, reif werden zu lassen und schließlich
+mehr oder weniger vollkommen zurückzugeben. Es gibt da Beispiele von unvergesslichem Eindruck, die
+Weltgeschichte und Kunstgeschichte ist voll davon: dass zum Beispiel einer, so wie in vielen Märchen, der
+Dumme und Unnütze in einer Familie ist, und dass gerade ihm eine Hauptrolle zufällt, und dass gerade dadurch,
+dass er seinem Wesen so treu bleibt, alle Begabten und Erfolgreichen neben ihm klein werden.  
+Da gab es zum Beispiel im Anfang des vorigen Jahrhunderts in Frankfurt die hochbegabte Familie Brentano, von
+deren fast zwanzig Kindern zwei noch heute berühmt sind, die Dichter Clemens und Bettina. Nun, alle diese
+vielen Geschwister waren hochbegabte, interessante, überdurchschnittliche Leute, sprühende Geister, glänzende
+Talente; nur der Älteste war und blien einfältig, er lebte sein ganzes Leben wie ein stiller Hausgeist im
+Vaterhaus, zu nichts zu brauchen, er war fromm als Katholik, geduldig und gutmütig als Bruder und Sohn, und
+wurde inmitten der lustigen und witzigen Geschwisterschar, bei der es oft exzentrisch zuging, immer mehr zu
+einem schweigenden Mittel- und Ruhepunkt, einem wunderlichen Haus-Kleinod von dem Frieden und Güte ausstrahlte.
+Von diesem Einfältigen, diesem Kindgebliebenem, sprechen die Geschwister mit einer Ehrfurcht und Liebe wie
+von keinem anderen Menschen. So war also auch ihm, dem Trottel, dem Blöden, sein Sinn und sein Auftrag
+mitgegeben, und er hat ihn vollkommener erfüllt als alle glänzenden Geschwister.  
+Kurz, es kommt, wenn ein Mensch das Bedürfnis hat, sein Leben zu rechtfertigen, nicht auf eine objektive,
+allgemeine Höhe der Leistung an, sondern eben darauf, dass er sein Wesen, das ihm mitgegebenwurde, so
+völlig und rein wie möglich in seinem Leben und Tun zur Darstellung bringe.  
+Tausend Verführungen bringen uns beständig von diesem Wege ab, aber die stärkste aller Verführungen ist die,
+dass man im Grunde ein ganz anderer sein möchte als man ist, dass man Vorbildern und Idealen folgt, die man
+nicht erreichen kann, und auch garnicht erreichen soll. Diese Verführung ist darum für höher veranlagte
+Menschen besonders stark und gefährlicher als die vulgären Gefahren des bloßen Egoismus, weil sie den
+Anschein des Edlen und Moralischen hat.  
+Jeder Bub hat in einem gewissen Alter einmal Fuhrmann oder Lukomotivführer, dann Jäger oder General, dann
+ein Goethe oder ein Don Juan werden wollen, das ist natürlich und gehört mit zur natürlichen Entwicklung und
+Selbsterziehung: Die Phantasie tastet gewissermaßen die Möglichkeiten für die Zukunft ab. Aber das Leben
+erfüllt diese Wünsche nicht, und die kindlichen und jugendlichen Ideale sterben von selber ab. Und doch
+wünscht man sich immer wieder etwas, was einem nicht zusteht, und quält sich mit Forderungen an die eigene
+Natur, die ihr Gewalt antut. Es geht uns allen so. Aber zwischenein, in Stunden des inneren Wachseins,
+spüren wir immer wieder, dass es keinen Weg aus uns heraus und in etwas anderes hinein gibt, dass wir mit
+unseren eigenen, ganz persönlichen Gaben und Mängeln durchs Leben hindurch müssen, und dann geschieht es
+wohl zuweilen auch, daß wir ein Stückchen weiterkommen, dass uns etwas glückt, was wir vorher nicht kannten,
+und dass wir für einen Augenblick uns selber ohne Zweifel bejahen und mit uns zufrieden sein können. Auf
+die Dauer gibt es das natürlich nicht, aber doch strebt das Innerste in uns nach nichts anderem als danach,
+sich selber natürlich wachsen und reifen zu spüren. Nur dann ist man in Harmonie mit der Welt, und
+unsereinem wird das selten zuteil, aber desto tiefer ist dann das Erlebnis.

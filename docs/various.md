@@ -261,3 +261,9 @@ genau abzuwägen und sich die Frage zu stellen, ob der momentane Lustgewinn kün
 störende Folgen haben könnte. Dieses "Lustkalkül" führt, wenn es konsequent praktiziert wird, zu einem
 asketischen Leben: Epikur folgt in diesem Punkt der Volksweisheit "Nichts im Übermaß!" (meden agan) und
 dem alten Ideal der Ausgeglichenheit und des rechten Maßes (sophrosyne). [...]
+
+&nbsp;
+
+<font size="-1">aus <span style="color:red ">[5]</span>:</font>  
+
+&nbsp;

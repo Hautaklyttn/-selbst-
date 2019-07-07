@@ -184,6 +184,7 @@ mehr oder weniger vollkommen zurückzugeben. Es gibt da Beispiele von unvergessl
 Weltgeschichte und Kunstgeschichte ist voll davon: dass zum Beispiel einer, so wie in vielen Märchen, der
 Dumme und Unnütze in einer Familie ist, und dass gerade ihm eine Hauptrolle zufällt, und dass gerade dadurch,
 dass er seinem Wesen so treu bleibt, alle Begabten und Erfolgreichen neben ihm klein werden.  
+
 Da gab es zum Beispiel im Anfang des vorigen Jahrhunderts in Frankfurt die hochbegabte Familie Brentano, von
 deren fast zwanzig Kindern zwei noch heute berühmt sind, die Dichter Clemens und Bettina. Nun, alle diese
 vielen Geschwister waren hochbegabte, interessante, überdurchschnittliche Leute, sprühende Geister, glänzende
@@ -194,6 +195,7 @@ einem schweigenden Mittel- und Ruhepunkt, einem wunderlichen Haus-Kleinod von de
 Von diesem Einfältigen, diesem Kindgebliebenem, sprechen die Geschwister mit einer Ehrfurcht und Liebe wie
 von keinem anderen Menschen. So war also auch ihm, dem Trottel, dem Blöden, sein Sinn und sein Auftrag
 mitgegeben, und er hat ihn vollkommener erfüllt als alle glänzenden Geschwister.  
+
 Kurz, es kommt, wenn ein Mensch das Bedürfnis hat, sein Leben zu rechtfertigen, nicht auf eine objektive,
 allgemeine Höhe der Leistung an, sondern eben darauf, dass er sein Wesen, das ihm mitgegebenwurde, so
 völlig und rein wie möglich in seinem Leben und Tun zur Darstellung bringe.  
@@ -202,6 +204,7 @@ dass man im Grunde ein ganz anderer sein möchte als man ist, dass man Vorbilder
 nicht erreichen kann, und auch garnicht erreichen soll. Diese Verführung ist darum für höher veranlagte
 Menschen besonders stark und gefährlicher als die vulgären Gefahren des bloßen Egoismus, weil sie den
 Anschein des Edlen und Moralischen hat.  
+
 Jeder Bub hat in einem gewissen Alter einmal Fuhrmann oder Lukomotivführer, dann Jäger oder General, dann
 ein Goethe oder ein Don Juan werden wollen, das ist natürlich und gehört mit zur natürlichen Entwicklung und
 Selbsterziehung: Die Phantasie tastet gewissermaßen die Möglichkeiten für die Zukunft ab. Aber das Leben
@@ -214,4 +217,17 @@ wohl zuweilen auch, daß wir ein Stückchen weiterkommen, dass uns etwas glückt
 und dass wir für einen Augenblick uns selber ohne Zweifel bejahen und mit uns zufrieden sein können. Auf
 die Dauer gibt es das natürlich nicht, aber doch strebt das Innerste in uns nach nichts anderem als danach,
 sich selber natürlich wachsen und reifen zu spüren. Nur dann ist man in Harmonie mit der Welt, und
-unsereinem wird das selten zuteil, aber desto tiefer ist dann das Erlebnis.
+unsereinem wird das selten zuteil, aber desto tiefer ist dann das Erlebnis.  
+&nbsp;
+
+[...] Unrein und verzerrend ist der Blick des Wollens. Erst wo wir nichts begehren, erst wo unser Schauen reine Betrachtung wird, tut sich die Seele der Dinge auf, die Schönheit. Wenn ich einen Wald beschauen den ich kaufen, den ich pachten, den ich abholzen, in dem ich jagen, den ich mit einer Hypothek belasten will, dann sehe ich nicht den Wald, sondern nur seine Beziehungen zu meinem Wollen, zu meinen Plänen und Sorgen, zu meinem Geldbeutel. Dann besteht er aus Holz, ist jung oder alt, gesund oder krank. Will ich aber nichts von ihm, blicke ich nur „gedankenlos“ in seine grüne Tiefe, dann erst ist er Wald, ist Natur und Gewächs, ist schön.  
+
+So ist es mit den Menschen und ihren Gesichtern auch. Der Mensch, den ich mit Furcht, mit Hoffnung, mit Begehrlichkeit, mit Absichten, mit Forderungen ansehe, ist nicht Mensch, er ist nur ein trüber Spiegel meines Wollens. Ich blicke ihn, wissend oder unbewusst, mit lauter beengenden, fälschenden Fragen an: Ist er zugänglich oder stolz? Achtet er mich? Kann man ihn anpumpen? Versteht er etwas von Kunst? Mit tausend solchen Fragen sehen wir die meisten Menschen an, mit denen wir zu tun haben, und wir gelten für Menschenkenner und Psychologen, wenn es uns glückt, in ihrer Erscheinung, in ihrem Aussehen und Benehmen das zu deuten, was unseren Absichten dient oder widerstrebt. Aber diese Einstellung ist eine ärmliche, und in dieser Art Seelenkunde ist der Bauer, der Hausierer, der Winkeladvokat den meisten Politikern oder Gelehrten überlegen.  
+
+Im Augenblick, da das Wollen ruht und die Betrachtung aufkommt, das reine Sehen und Hingegebensein, wird alles anders. Der Mensch hört auf, nützlich oder gefährlich zu sein, interessiert oder langweilig, gütig oder roh, stark oder wach. Er wird Natur, er wird schön und merkwürdig wie jedes Ding, auf das reine Betrachtung sich richtet. Denn Betrachtung ist ja nicht Forschung oder Kritik, sie ist nichts als Liebe. Sie ist der höchste und wünschenswerteste Zustand unserer Seele: begierdelose Liebe.  
+Haben wir diesen Zustand erreicht, es sei nun für Minuten, Stunden oder Tage (ihn immer innezuhalten wäre
+die vollkommene Seligkeit), dann sehen die Menschen anders aus als sonst. Sie sind nicht mehr Spiegel oder Zerrbilder unseres Wollens, sie sind wieder Natur geworden. Schön und häßlich, alt und jung, gütig und böse, offen und verschlossen, hart und weich sind keine Gegensätze, sind keine Matzstäbe mehr. Alle sind schön, alle sind merkwürdig, keiner mehr kann verachtet, kann gehatzt kann missverstanden werden. [...]
+&nbsp;
+
+<span style="color:red ">Auf eine menschenwürdige Art alt zu werden und jeweils die unserem Alter zukommende Haltung oder Weisheit zu haben, ist eine schwere Kunst; meistens sind wir mit der Seele dem Körper gegenüber entweder voraus oder zurück, und zu den Korrekturen dieser Differenzen gehören jene Erschütterungen des inneren Lebensgefühls, jenes Zittern und Bangen an den Wurzeln, die uns eh und je bei Lebenseinschnitten und Krankheiten befallen. Mir scheint, man darf ihnen gegenüber wohl klein sein und sich klein fühlen, wie Kinder durch Weinen und Schwäche hindurch am besten das Gleichgewicht nach einer Störung des Lebens wieder finden.</span>
+&nbsp;

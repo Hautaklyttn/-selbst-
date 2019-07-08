@@ -19,7 +19,7 @@ layout: default
 
 &nbsp;
 
-[...] Identifikation mit dem Verstand macht mehr aus der Zeit; Beobachtung der Verstandes eröffnet
+[...] Identifikation mit dem Verstand macht mehr aus der Zeit; Beobachtung des Verstandes eröffnet
 die Dimension der Zeitlosigkeit.
 >Die Energie die dem Verstand entzogen wird, verwandelt sich in Präsenz.
 

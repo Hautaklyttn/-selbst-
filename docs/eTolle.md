@@ -23,7 +23,7 @@ layout: default
 die Dimension der Zeitlosigkeit.
 >Die Energie die dem Verstand entzogen wird, verwandelt sich in Präsenz.
 
-Sobald du fühlen kannst, was es heißt, präsent zu sein, fällt es die viel leichter,
+Sobald du fühlen kannst, was es heißt, präsent zu sein, fällt es dir viel leichter,
 einfach aus der Zeitdimension auszusteigen, wenn du nicht gerade Zeit für praktische Aufgaben
 brauchst, und tiefer in das Jetzt einzutauchen. [...]  
 Um im täglichen Leben gegenwärtig zu bleiben, hilft es dir, tief im eigenen Innern verwurzelt zu

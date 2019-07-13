@@ -4,4 +4,7 @@ title: About
 permalink: /about/
 ---
 
-This is the ...
+Persönliche Sammlung von Textauszügen, verschiedener Autoren.  
+&nbsp;
+
+Hilfe zur Selbstfindung, zur Meditation, zum stillen Nachdenken und zur geistigen Regeneration.

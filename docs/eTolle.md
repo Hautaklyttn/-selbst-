@@ -125,3 +125,111 @@ Ego weiß natürlich nicht, dass du nur durch den Verzicht auf deinen Widerstand
 > <font size="-1">(Senecca)</font>  
 
 &nbsp;
+
+Wenn dein Bewusstsein nach außen gerichtet ist, entstehen der Verstand und die Welt. Ist es nach innen gerichtet, erkennt es seine eigene Quelle und kehrt nach Hause zurück ins Unmanifeste.  
+
+> "Du kannst es nur erfahren, wenn der Verstand still ist. Du wirst es nie mit dem Intellekt begreifen können, aber wenn du voll gegenwärtig bist und deine Aufmerksamkeit ganz auf das Jetzt konzentrierst, kannst du es fühlen."  
+
+Das Wort Erleuchtung beschwört die Vorstellung einer übermenschlichen Großtat herauf, und das Ego möchte, dass es so bleibt; dabei bezeichnet das Wort einfach nur den natürlichen Zustand, in dem du dich eins mit dem Sein fühlst. Es ist ein Zustand der Verbundenheit mit etwas Unermesslichem und
+Unzerstörbarem, mit etwas, das paradoxerweise du selbst bist und das trotzdem viel größer ist als du. Du findest darin, jenseits von Name und Form, dein wahres Wesen.  
+Aus der Unfähigkeit, diese Verbundenheit zu spüren, entsteht die Illusion, von sich selbst und der Außenwelt getrennt zu sein. In diesem Fall nimmst du dich bewusst oder unbewusst als isoliertes Fragment wahr. Angst entsteht, innere und äußere Konflikte werden zur Normalität.  
+
+Die Freiheit beginnt mit der Erkenntnis, dass du nicht das Wesen bist, von dem du besessen wirst - der Denker. Diese Einsicht versetzt dich in die Lage, den, der dich beherrscht, zu beobachten. In dem Augenblick, in dem du den Denker zu beobachten beginnst, wird eine höhere Bewusstseinsebene aktiviert.  
+
+Du erkennst einen unendlich großen Intelligenzbereich jenseits des Denkens, von dem das Denken nur ein winziger Bruchteil ist. Du erkennst auch, dass alles, was wirklich von Bedeutung ist - Schönheit, Liebe, Kreativität, Freude, innerer Friede - seinen Ursprung jenseits des Verstandes hat.  
+**Du beginnst zu erwachen.**
+
+[...] Statt den Denker zu beobachten, kannst du den Gedankenstrom auch unterbrechen, indem du deine Aufmerksamkeit einfach auf das Jetzt richtest. Werde dir einfach des gegenwärtigen Augenblicks vollkommen bewusst.  
+
+Das ist etwas sehr Befriedigendes. Auf diese Weise kannst du dein Bewusstsein vom Denken abziehen und eine Lücke des Nichtdenkens schaffen, in der du hellwach und voll bewusst bist, ohne zu denken. **Das ist das Wesen der Meditation.**  
+
+Im täglichen Leben kannst du dich darin bei jeder Routinetätigkeit üben, die normalerweise nur Mittel zum Zweck ist. Widme ihr deine gesammelte Aufmerksamkeit, sodass sie selber zum Zweck wird. Achte zum Beispiel, wenn du zu Hause oder an deinem Arbeitsplatz eine Treppe hinaufgehst, aufmerksam auf jede Stufe, auf jede Bewegung und sogar auf deine Atmung. Sei voll gegenwärtig.  
+
+[...] Wenn du, besonders im Hinblick auf eine kreative Lösung, deinen Verstand gebrauchst, wechselst du alle paar Minuten zwischen Geistesaktivität und Stille, zwischen Denken und Nichtdenken hin und her. Das Nichtdenken ist Bewusstheit ohne Gedanken. Nur so ist kreatives Denken möglich, denn nur so hat das Denken wirkliche Macht. Für sich allein, ohne die Verbindung zum unendlich viel größeren Bereich des Bewusstseins, wird das Denken schnell unproduktiv, krank und zerstörerisch.  
+
+[...] Mach es Dir zur Gewohnheit, Dich zu fragen: Was geht in diesem Augenblick in mir vor? Diese Frage wird Dir die richtige Richtung weisen. Aber analysiere nichts, beobachte einfach nur.“ Richte deine Aufmerksamkeit nach innen. Fühle die Energie der Emotion.  
+Wenn keine Emotion da ist, solltest du deine Aufmerksamkeit noch tiefer ind as innere Energiefeld deines Körpers lenken. Das ist das Tor zum Sein.  
+
+Der psychische Zustand der Angst steht mit keiner konkreten, echten, unmittelbaren Gefahr in Zusammenhang. Er äußert sich in unterschiedlichster Form: als Unbehagen, Sorge, Unruhe, Nervosität, Anspannung, Schrecken, Phobie usw. Diese Art von psychischer Angst ist nicht durch etwas begründet, was gerade geschieht, sondern durch etwas, das möglicherweise geschehen könnte. Du bist im Hier und Jetzt, während deine Gedanken in der Zukunft weilen. Dadurch entsteht eine Blase, die sich mit Angst füllt. Und wenn du dich mit deinem Denken identifizierst, sodass du die Berührung mit der Kraft und
+Einfachheit des Jetzt verlierst, wird diese angsterfüllte Blase dein ständiger Begleiter sein. Mit dem gegenwärtigen Augenblick kannst du immer klarkommen, aber mit etwas, das reine Projektion ist, kannst du nichts anfangen.  
+
+<span style="color:red ">[...] Achte auf jede Form von Abwehrhaltung in deinem Innern. Was verteidigst du eigentlich? Eine trügerische Identität, eine gedankliche Vorstellung, ein fiktives Gebilde. Indem du dir dieses Muster bewusst machst und es beobachtest, hörst du auf, dich mit ihm zu identifizieren. Im Licht der Bewusstheit löst sich das unbewusste Muster schnell auf.  
+Damit sind alle Streitigkeiten und Machtspiele, die sich so zersetzend auf Beziehungen auswirken, zu Ende. Macht über andere ist als Stärke getarnte Schwäche. Wahre Macht kommt von innen, und sie ist dir *jetzt* zugänglich.</span>  
+
+Der Verstand versucht stets, das Jetzt zu leugnen und davor zu flüchten. Mit anderen Worten: Je stärker du dich mit deinem Denken identifizierst, umso mehr leidest du. Je besser du das Jetzt anzunehmen und zu würdigen weißt, umso weniger Schmerz und Leid erfährst du - und umso freier bist du vom Egodenken.  
+
+Unter Umständen fällt es dir schwer zu erkennen, dass die Zeit die Ursache deiner Probleme und deines Leidens ist. Du glaubst, sie seien durch bestimmte Lebens situationen bedingt, und aus konventioneller Sicht stimmt das auch. Aber solange du dich nicht mit der tiefer liegenden geistigen Störung auseinander setzt, die deine Probleme verursacht - dem Anhaften an Vergangenheit und Zukunft und der Verleugnung des Jetzt -, sind die Probleme im Grunde austauschbar.  
+Wenn alle Probleme oder alle eingebildeten Ursachen deines Unglücks und deiner Leiden heute auf wunderbare Weise von dir genommen würden, du jedoch noch nicht bewusster und gegenwärtiger geworden wärst, würdest du bald wieder von ähnlichen Problemen und Leidensursachen heimgesucht werden, als wäre dir ein Schatten auf die Fersen geheftet. Letzten Endes gibt es nur ein einziges Problem: den an der Zeit hängenden Verstand.  
+
+Es gibt keine Erlösung in der Zeit. Die Zukunft macht dich nicht frei.  
+> Gegenwärtigkeit ist der Schlüssel zur Freiheit, du kannst also nur jetzt frei sein.
+
+Mach von all deinen Sinnen Gebrauch. Sei, wo du bist. Schau um dich. Schau einfach nur, ohne zu
+interpretieren. Sieh das Licht, die Formen, die Farben, die Strukturen. Werde der stillen Gegenwart aller Dinge gewahr. Werde des Raums gewahr, der allem ermöglicht, zu sein.  
+Lausche auf die Geräusche; beurteile sie nicht. Lausche auf die Stille hinter den Geräuschen.
+Berühre etwas - irgendetwas -, fühle sein Dasein und nimm es zur Kenntnis.  
+Achte auf den Rhythmus deines Atems; fühle, wie die Luft ein- und ausströmt, fühle die Lebensenergie in deinem Körper. Lass alles so sein, innen und außen. Lass das »Sosein« aller Dinge zu. Tauche tief in das Jetzt ein.  
+
+Gib das Warten als Geisteshaltung auf. Wenn du dich dabei ertappst, wie du zu warten anfängst... reiß
+dich da raus und komm in den gegenwärtigen Augenblick. Sei einfach da und freu dich des Daseins.
+Wenn du gegenwärtig bist, besteht nie ein Grund, auf irgendetwas zu warten.  
+
+Wenn also das nächste Mal jemand sagt: »Tut mir Leid, dass ich dich warten lassen habe«, kannst du
+antworten: »Schon gut, ich habe nicht gewartet. Ich habe einfach hier gestanden und mich gefreut - mich an mir selbst gefreut.«  
+
+Um im täglichen Leben gegenwärtig zu bleiben, hilft es dir, tief im eigenen Innern verwurzelt zu sein; sonst wird dich deine Geistestätigkeit, die eine unglaubliche Eigendynamik hat, mitreißen wie ein rauschender Strom.  
+Du musst also ganz in deinem Körper wohnen. Ein Teil deiner Aufmerksamkeit muss immer auf das innere
+Energiefeld deines Körpers konzentriert sein. Du musst den Körper sozusagen von innen spüren. Das Körperbewusstsein hält deine Gegenwärtigkeit wach. Es verankert dich im Jetzt.  
+
+[...] Konzentriere deine Aufmerksamkeit im Innern deines Körpers. Fühle den Körper von innen. Ist er
+lebendig? Ist Leben in deinen Händen, Armen, Beinen und Füßen? In deinem Unterleib und in deiner Brust? Kannst du das feine Energiefeld spüren, das den gesamten Körper durchdringt und jedes Organ, jede Zelle mit pulsierendem Leben erfüllt? Kannst du es als ein einziges Energiefeld in allen Teilen deines Körpers zugleich fühlen?  
+Konzentriere dich ein paar Augenblicke darauf, wie sich dein innerer Körper anfühlt. Denk nicht darüber nach. Fühle es.  
+
+Sorge zuerst dafür, dass du nicht von äußeren Ablenkungen gestört wirst wie etwa Telefongeklingel oder Menschen, die etwas von dir wollen. Setze dich auf einen Stuhl, ohne dich anzulehnen. Halte die Wirbelsäule gerade. Das wird dir helfen, wachsam zu bleiben. Du kannst natürlich auch deine gewohnte Meditationshaltung einnehmen.  
+Achte darauf, dass du körperlich entspannt bist. Schließe die Augen. Hole ein paarmal tief Luft. Spüre, wie du in den Unterleib hineinatmest. Beobachte, wie er sich leicht ausdehnt und wieder zusammenzieht, während du ein- und ausatmest.  
+Werde dir des gesamten inneren Energiefeldes deines Körpers bewusst. Denk nicht darüber nach - fühle es. Dadurch forderst du dein Bewusstsein vom Verstand zurück. Falls es dir etwas nützt, kannst du auch von der eben beschriebenen »Licht«-Visualisation Gebrauch machen. Wenn du den inneren Körper deutlich als ein einziges inneres Energiefeld fühlst, lass nach Möglichkeit von jeglicher bildhaften Vorstellung ab und konzentriere dich ausschließlich auf das Gefühl. Lass möglichst auch alle Vorstellungen fahren, die du vielleicht noch immer vom physischen Körper hast. Jetzt dürfte nur noch ein allumfassendes Gefühl von Gegenwärtigkeit oder »Sosein« übrig sein, und der innere Körper kann in seiner Grenzenlosigkeit erfahren werden.  
+
+[...] Konzentriere deine Aufmerksamkeit noch stärker auf dieses Gefühl. Werde eins damit. Verschmelze mit dem Energiefeld, sodass die scheinbare Dualität zwischen Beobachter und dem Beobachteten, zwischen dir und dem Körper, aufgehoben ist. Auch der Unterschied zwischen innen und außen löst sich jetzt auf, sodass kein innerer Körper mehr da ist. Dadurch, dass du tief in den Körper eingedrungen bist, hast du ihn transzendiert.  
+
+Bleibe in diesem Bereich reinen Seins, solange es dir gefällt; werde dir dann allmählich wieder deines physischen Körpers bewusst, deiner Atmung und deiner Sinne, und öffne die Augen. Lass deinen Blick ein paar Minuten lang meditativ auf den Dingen in deinem Um kreis ruhen, ohne sie im Geiste zu etikettieren, und verweile dabei im Gefühl deines inneren Körpers.  
+
+»Überschwemme« deinen Körper mit Bewusstsein, sobald du einmal ein paar Minuten nichts zu tun hast,
+vor allem aber am Abend kurz vor dem Einschlafen und morgens gleich nach dem Aufwachen. Schließe
+die Augen. Lege dich flach auf den Rücken. Nimm dirverschiedene Teile deines Körpers vor, auf die du
+zunächst deine Aufmerksamkeit kurz konzentrierst: Hände, Füße, Arme, Beine, Bauch, Brust, Kopf usw.
+Entwickle ein möglichst intensives Gefühl für die Lebensenergie in diesen Körperteilen. Verweile bei
+jedem Körperteil etwa 15 Sekunden.  
+Lass deine Aufmerksamkeit nun einige Male wie eine Welle durch den Körper laufen, von den Füßen zum
+Kopf und wieder zurück. Das braucht nur etwa eine Minute zu dauern. Fühle danach deinen inneren Körper in seiner Totalität als ein einziges Energiefeld. Bleibe ein paar Minuten bei diesem Gefühl.  
+Sei während dieser Zeit absolut gegenwärtig, sei in jeder Zelle deines Körpers gegenwärtig.  
+
+Sollte es dir mal schwer fallen, den Kontakt zum inneren Körper herzustellen, wird es meist dadurch leichter, dass du dich zu Anfang auf die Atmung konzentrierst. Durch bewusstes Atmen, eine für sich allein schon wehr wirksame Meditation, wirst du allmählich mit dem Körper in Berührung kommen.  
+
+Folge aufmerksam deinem Atem, während er in deinen Körper ein- und wieder ausströmt. Atme in den Körper hinein und fühle, wie sich dein Bauch bei jedem Atemzug leicht ausdehnt und wieder zusammenzieht.  
+Wenn du visuell begabt bist, dann schließe die Augen und visualisiere dich inmitten von Licht oder einer leuchtenden Substanz - in einem Meer aus Bewusstsein. Atme dieses Licht nun ein. Fühle, wie die leuchtende Substanz deinen Körper anfüllt und ihn ebenfalls zum Leuchten bringt.  
+Konzentriere dich allmählich mehr auf das Gefühl. Halte nicht an irgendwelchen bildhaften Vorstellungen fest. Du bist jetzt in deinem Körper. Du hast zur Kraft des jetzt gefunden.  
+
+[...] Mit anderen Worten: Je stärker du dich mit dem Denken identifizierst, umso mehr leidest du. Noch anders ausgedrückt: Je besser du in der Lage bist, das Jetzt anzuerkennen und zu würdigen, umso weniger Leid und Schmerz wirst du erfahren - und umso mehr wirst du dich vom Egogeist befreien.  
+
+Der Schmerzkörper mag es nicht, wenn du ihn genau unter die Lupe nimmst und ihn als das erkennst, was er ist. In dem Augenblick, in dem du den Schmerzkörper beobachtest, sein Energiefeld in dir
+spürst und ihm deine Aufmerksamkeit zuwendest, ist die Identifikation sofort aufgehoben.  
+Eine höhere Bewusstseinsdimension ist erreicht. Ich nenne sie Gegenwärtigkeit. Du bist jetzt der beobachter oder Zeuge deines Schmerzkörpers. Das bedeutet, dass er dich weder weiter ausnutzen kann,
+indem er vorgibt, du zu sein, noch sich weiterhin an dir erneuern kann. Du hast deine eigene innerste Kraft gefunden.  
+
+[...] Wenn du zum Beobachter wirst und aufhörst, dich mit dem Schmerzkörper zu identifizieren, wird er noch eine Weile aktiv bleiben und versuchen, dich mit List und Tücke zur erneuten Identifikation mit ihm zu bringen. Du führst ihm zwar keine Energie mehr zu, wenn du dich nicht mehr mit ihm identifizierst, aber er hat eine gewisse Schwungkraft, genauso wie ein Spinnrad, das sich auch ohne Antrieb noch eine Zeit lang weiterdreht. Auch in diesem Stadium verursacht er unter Umständen physische Beschwerden und Schmerzen in verschiedenen Körperteilen, die jedoch nicht von Dauer sind.
+Bleibe gegenwärtig, bleibe bewusst. Sei der stets wachsame Hüter deines inneren Raumes. Du musst so
+gegenwärtig sein, dass du den Schmerzkörper direkt anschauen und seine Energie spüren kannst. Dann
+kann er dein Denken nicht mehr beherrschen.  
+
+Egal, ob du allein lebst oder mit einem Partner zusammen, hier ist der Hauptpunkt: Sei gegenwärtig
+und intensiviere das Gegenwärtigsein dadurch, dass du deine Aufmerksamkeit immer stärker auf das Jetzt konzentrierst.  
+Damit die Liebe aufblühen kann, muss das Licht deiner Gegenwärtigkeit so stark sein, dass der Denker oder der Schmerzkörper dich nicht länger beherrschen können und du ihn für dich selbst hältst.  
+
+Dich selbst im Sein hinter dem Denker, in der Stille hinter dem Gedankenlärm, in der Liebe und Freude hinter dem Schmerz zu erkennen, das ist Freiheit, Erlösung, Erleuchtung.  
+
+Wenn du aufhörst, das Denken als dein Selbst anzusehen, verliert es seine Zwanghaftigkeit, diesen grund sätzlichen Hang zum Urteilen und zum Widerstand gegen das, was ist, wodurch Konflikte, Dramen und neue Schmerzen entstehen. Sobald durch Akzeptieren dessen, was ist, das Urteilen aufhört, bist du
+frei vom Denken und hast endlich Raum für Liebe, Freude und Frieden.  
+
+Aber brauchst du überhaupt eine Beziehung zu dir selbst? Warum bist du nicht einfach du selbst? Wenn du eine Beziehung zu dir selbst hast, bist du zweigeteilt: »ich« und »mein Selbst«, Subjekt und Objekt. Diese vom Denken geschaffene Dualität ist die Grundursache für all die unnötigen Komplikationen, Probleme und Konflikte in deinem Leben.  
+
+Im Zustand der Erleuchtung bist du du selbst - »du« und »dein Selbst« verschmelzen miteinander. Du beurteilst dich nicht und bedauerst dich nicht, du bist nicht stolz auf dich, du liebst dich nicht und hasst dich nicht usw. Die durch die Selbstreflexion des Bewusstseins bewirkte Spaltung ist beseitigt, ihr Fluch aufgehoben. Da ist kein »Selbst«, das du weiterhin nähren, schützen oder verteidigen müsstest. Wenn du erleuchtet bist, fällt eine Beziehung für dich weg: die Beziehung zu dir selbst. Sobald du diese Beziehung aufgegeben hast, verwandeln sich all deine anderen Beziehungen in Liebesbeziehungen.

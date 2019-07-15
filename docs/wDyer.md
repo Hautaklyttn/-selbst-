@@ -5,7 +5,7 @@ layout: default
 [Back](./)
 
 <span style="color:red ">[1]</span> *Der wunde Punkt*  
-<span style="color:red ">[2]</span> *Ändere deine Gedanken (TAO)*  
+<span style="color:red ">[2]</span> *Ändere deine Gedanken - Die lebendige Weisheit des TAO*  
 
 &nbsp;
 

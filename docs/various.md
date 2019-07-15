@@ -291,3 +291,9 @@ Wie verhält sich der gelassene Mensch gegenüber seinen Nächsten? >>Er hat Gem
 &nbsp;
 
 <span style="color:red ">[...] Was aber heißt Denken? Heidegger unterscheidet zwei Arten des Denkens: das >>rechnende Denken<< des technischen Verstandes, ein planendes und forschendes Denken, das noch dann kalkuliert, wenn es nicht mit Zahlen operiert, da es immerzu mit gegebenen Umständen rechnet und auf bestimmte Ziele ausgerichtet ist. Und das >>besinnliche Denken<< der philosophischen Vernunft, das einhält und >>dem Sinn nachdenkt, der in allem waltet, was ist<< - ein Denken also, das innerhalb eines Rahmens denkt, versus ein Denken, das über den Rahmen selbst nachdenkt. Beide sind auf ihre Weise nötig und berechtigt, jedoch, so Heidegger etwas düster, verdrängt das eine immer mehr das andere: das rechnende Denken das besinnliche Nachdenken.</span>
+
+&nbsp;
+
+<font size="-1">aus <span style="color:red ">[6]</span>:</font>  
+
+&nbsp;

@@ -8,11 +8,12 @@ layout: default
 <span style="color:red ">[2]</span> T. Nhat Hanh - *Das Wunder der Achtsamkeit*  
 <span style="color:red ">[3]</span> T. Hohensee - *Gelassenheit beginnt im Kopf*  
 <span style="color:red ">[4]</span> Epikur - *Philosophie des Glücks*  
-<span style="color:red ">[5]</span> T. Strässle - *Gelassenheit*  
+[[5]](#book5) T. Strässle - *Gelassenheit*  
 <span style="color:red ">[6]</span> U. Ott - *Meditation für Skeptiker*  
 <span style="color:red ">[7]</span> M. Bordt - *Die Kunst sich selbst zu verstehen*  
 <span style="color:red ">[8]</span> M.Serrano - *C.G. Jung und Hermann Hesse*  
 <span style="color:red ">[9]</span> M.Williams - *Das Achtsamkeitstraining*  
+<span style="color:red ">[10]</span> Einzelne Texte  
 
 &nbsp;
 
@@ -264,7 +265,7 @@ dem alten Ideal der Ausgeglichenheit und des rechten Maßes (sophrosyne). [...]
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[5]</span>:</font>  
+(#book5)<font size="-1">aus <span style="color:red ">[5]</span>:</font>  
 
 &nbsp;
 
@@ -297,3 +298,47 @@ Wie verhält sich der gelassene Mensch gegenüber seinen Nächsten? >>Er hat Gem
 <font size="-1">aus <span style="color:red ">[6]</span>:</font>  
 
 &nbsp;
+
+Wissenschaftliche Untersuchungen ergaben, dass sich die Erfahrungen von Meditierenden tatsächlich entlang einer Tiefendimension entfalten. Man untersuchte klassische Texte buddhistischer, christlicher, hinduistischer und daoistischer  Traditionen, die eine Abfolge von Stufen zunehmender Vertiefung im Verlauf der Meditationspraxis beschreiben:  
+
+1. Hindernisse: Unruhe, Langeweile, Motivations-/Konzentrationsprobleme  
+2. Entspannung: Wohlbefinden, ruhige Atmung, wachsende Geduld, ruhige  
+3. Konzentration: Achtsamkeit, kein Anhaften an Gedanken, innere Mitte, Energiefeld, Leichtigkeit, Einsichten, Gleichmut, Frieden  
+4. Essentielle Qualitäten: Klarheit, Wachheit, Liebe, Hingabe, Verbundenheit, Demut, Gnade, Dankbarkeit, Selbstakzeptanz  
+5. Nicht-Dualität: Gedankendstille, Einssein, Leerheit, Grenzenlosigkeit, Transzendenz von Subjekt und Objekt  
+
+Diese fünf Tiefenbereiche liefern eine grobe Landkarte der potentiellen Bewusstseinsveränderungen durch Meditation  
+
+&nbsp;
+
+[...] Ideen und Vorstellungen über die eigene Person, die auf vergangenen Erfahrungen beruhen, und Projektionen in die Zukunft in Form von Wünschen, Hoffnungen und Erwartungen verhindern die Wahrnehmung dessen, was jetzt ist. Meditation zielt darauf ab, den Kontakt zur lebendigen Gegenwart herzustellen und die Fähigkeit zum Denken, Erinnern und Planen bewusst nur dann einzusetzen, wenn sie tatsächlich benötigt werden. Auf diese Weise werden Sie in die Lage versetzt, selbst zu bestimmen, was Sie in jedem Moment tun oder auch lassen möchten.  
+
+[...] Die Atmung wirkt sich in Form der sogenannten 'respiratorischen Sinusarythmie' direkt auf die Herztätigkeit aus: Beim Einatmen schlägt das Herz etwas schneller, beim Ausatmen verlangsamt es sich. Sie können das selbst überprüfen, wenn Sie Ihren Puls am Handgelenk tasten. Die Höhe dieser Schwankungen nimmt bei einer Verlangsamung der Atmung zu. Eine Verlangsamung der Atmung während der Meditation ist ein typisches Phänomen bei Personen, die regelmäßig meditieren. Es wird vermutet, dass eine Synchronisierung von Atem-, Herz- und Blutdruckrhytmhen durch langsame, vertiefte Bauchatmung positive gesundheitliche Effekte mit sich bringt und zur Behandlung von Störungen der autonomen Regulation eingesetzt werden kann.  
+Jüngst fand eine dänische Arbeitsgruppe bei Meditierenden mehr graue Substanz in Kerngebieten des Hirnstamms die mit der Regulation der Atmung und des Herz-Kreislauf-Systems beschäftigt sind. Die Autoren vermuten, dass es sich um eine Auswirkung der langjährigen Übungspraxis handelt, die unter anderem achtsames Atmen beinhaltet. Veränderungen im Hirnstamm hätten aufgrund der vielfältigen Verbindungen zu höheren Zentren auch positive Effekte auf Emotionen und Immunreaktionen.  
+
+[...] Mini-Meditation: Atemraum  
+Meditation ist nicht an einem bestimmten Ort oder eine bestimmte Körperhaltung gebunden. Wann immer Sie eine kurze Zeitspanne zur Verfügung haben, können Sie den sogenannten Atemraum praktizieren, der nicht mehr als drei Minuten in Anspruch nimmt. Diese Übung besteht aus drei Elementen:  
+
+1. Gewahrsein: Nehmen Sie alle Gedanken, Gefühle und Körperempfinden bewusst wahr.
+2. Sammlung: Beobachten Sie den Atem, und ruhen Sie im gegenwärtigen Augenblick.
+3. Ausdehnen: Nehmen Sie den Körper als Ganzes wahr.  
+
+[...] Umgekehrt wird die Beachtung körperlicher Signale als Teil der emotionalen Intelligenz betrachtet und als wichtiger Baustein bei der Entwicklung intuitiver Kompetenzen. Meditationstechniken, die die Bewusstheit von Körperempfinden steigern, sind anscheinend in der Lage, die emotionale Klarheit zu erhöhen.  
+<span style="color:red ">Eine wichtige Zielsetzung der Meditation besteht darin die vernachlässigte Körperwahrnehmung zu verbessern, damit einen Zugang zur "Weisheit des Körpers" zu eröffnen und zu lernen, Gefühlen, Intuitionen und dem eigenen Gespür für Situationen und anderen Menschen mehr zu vertrauen. Ein verstärktes "Selbstvertrauen" ist eine typische Auswirkung tiefer Meditation. Praktizierende berichten, dass sie bei tiefen Meditationserfahrungen zu sich kommen und ihre innere Mitte (wieder) finden.</span>
+
+Meditation ist darauf gerichtet, sich die einzelnen Facetten der eigenen Identität bewusst zu machen. In diesem Kapitel geht es vorrangig darum, den Körper und die eigenen Gefühle klarer wahrzunehmen. Dies trägt zu einem stabilen Selbstbewusstsein bei, zu mehr Autonomie und Authentizität. Sie können mittels Meditation lernen, sich zu zentrieren und sich weniger leicht in sozialen Zwängen und Automatismen zu verlieren, wenn Sie anderen Menschen begegnen.  
+Die Leitfragen hierbei sind: Wer bin ich? Was ist jetzt? Was will ich wirklich? Wenn sie erkennen, wer sie sind, zu sich kommen und Ihre innere Mitte finden, können Sie beginnen, selbstbestimmter zu leben und Diskrepanzen zwischen Ihrem Wollen und tatsächlichen Tun zu reduzieren.  
+
+[...] Bei der Achtsamkeitsmeditation werden Reaktionsschleifen unterbrochen, indem sekundäre Bewertungen unterbleiben. Stattdessen werden die körperlichen Empfindungen mit einer Haltung des Gleichmuts kontinuierlich wahrgenommen und akzeptiert, so wie sie sind. Auf diese Weise werden Stressreaktionen weder unterdrückt noch verstärkt und klingen nach einiger Zeit von selbst wieder ab.  
+Diese Art des veränderten Umgangs mit Belastungen scheint positive Auswirkungen auf das Gehirn zu haben. In zwei Studien wurde belegt, dass Medtierende mehr graue Substanz (Hirnzellen) im Hippocampus aufweisen als Kontrollpersonen. Es ist bekannt, dass ein hoher Stresspegel sich negativ auf das neuronale Wachstum in dieser Hirnregion auswirkt.  Meditierende sind anscheinend besser in der Lage, ihr vegetatives Erregungsniveau zu senken (Entspannung) und in belastenden Situationen Ruhe und Gelassenheit zu bewahren.  
+Der Hippocampus spielt als Teil des limbischen Systems eine wichtige Rolle bei der Beurteilung von Situationen und der emotionalen Reaktivität. Die strukturellen Unterschiede in dieser Region könnten einen Zuwachs an Kompetenz widerspiegeln, Situationen differenziert wahrzunehmen und die Erregung des vegetativen Nervensystems zu kontrollieren.  
+
+[...] Durch die Verankerung Ihres Bewusstseins in Ihrem Körper wirken Sie einer einseitigen Betonung des Verstandes (>>Verkopfung<<) entgegen. Die kontinuierliche Betrachtung der Körperempfindungen und Gefühle von Moment zu Moment führt sie zur Einsicht in deren fluktuierende Natur, ein ständiges Entstehen und wieder Vergehen. Einerseits können Sie mit Hilfe der beschriebenen Übungen lernen, Ihren Körper deutlicher zu spüren und sich in ihm heimisch zu fühlen (Selbstakzeptanz), andererseits gewinnen Sie durch die distanzierte Beobachtung an Gelassenheit und Entscheidungsfreiheit, indem Sie automatische Reaktion erkennen und durch bewusstes, an die Situation angepasstes Handeln ersetzen können (Freiheit und Selbstbestimmung).  
+Die Wahrnehmung von Körperempfindungen, die von Akzeptanz und Gleichmut getragen ist, führt zu einem inneren Klärungsprozess, bei dem Ängste, Wut und Trauer mit der Zeit abnehmen und sich positive Gefühle einstellen.  
+
+&nbsp;
+
+<font size="-1">aus <span style="color:red ">[10]</span>:</font>  
+
+
+>[...] "Das Denken und die  Erkenntnis muss von innen kommen. Vom Innerlich werden, fängt alles Wissen und Begreifen. Man muss , z.B. als Historiker, die alten Zeiten in sich aufleben lassen, man muss sich versenken in die alten Zeiten. Man muss die Ruinen sehen, man muss die Bilder sehen von damals. Dann erst, wenn man das verinnerlicht hat, kann man darüber schreiben. Das ist ein typisch romantischer Gedanke. Philosophie ist nichts anderes als eine Naturlehre unseres Geistes. Das System der Natur ist zugleich das System unseres Geistes." [...]

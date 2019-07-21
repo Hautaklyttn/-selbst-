@@ -4,16 +4,16 @@ layout: default
 
 [Back](./)
 
-<span style="color:red ">[1]</span> Jean Monbourquette - *Psychologie und Spiritualität*  
-<span style="color:red ">[2]</span> T. Nhat Hanh - *Das Wunder der Achtsamkeit*  
-<span style="color:red ">[3]</span> T. Hohensee - *Gelassenheit beginnt im Kopf*  
-<span style="color:red ">[4]</span> Epikur - *Philosophie des Glücks*  
+[[1]](#book1) Jean Monbourquette - *Psychologie und Spiritualität*  
+[[2]](#book2) T. Nhat Hanh - *Das Wunder der Achtsamkeit*  
+[[3]](#book3) T. Hohensee - *Gelassenheit beginnt im Kopf*  
+[[4]](#book4) Epikur - *Philosophie des Glücks*  
 [[5]](#book5) T. Strässle - *Gelassenheit*  
-<span style="color:red ">[6]</span> U. Ott - *Meditation für Skeptiker*  
-<span style="color:red ">[7]</span> M. Bordt - *Die Kunst sich selbst zu verstehen*  
-<span style="color:red ">[8]</span> M.Serrano - *C.G. Jung und Hermann Hesse*  
-<span style="color:red ">[9]</span> M.Williams - *Das Achtsamkeitstraining*  
-<span style="color:red ">[10]</span> Einzelne Texte  
+[[6]](#book6) U. Ott - *Meditation für Skeptiker*  
+[[7]](#book7) M. Bordt - *Die Kunst sich selbst zu verstehen*  
+[[8]](#book8) M.Serrano - *C.G. Jung und Hermann Hesse*  
+[[9]](#book9) M.Williams - *Das Achtsamkeitstraining*  
+[[10]](#book10) Einzelne Texte  
 
 &nbsp;
 
@@ -21,7 +21,7 @@ layout: default
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[1]</span>:</font>  
+<a name="book1"></a> <font size="-1">aus <span style="color:red ">[1]</span>:</font>  
 
 &nbsp;
 
@@ -227,7 +227,7 @@ gehen. Hier ist Raum für das raumlose Reich des Hintergrunds." [...]
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[4]</span>:</font>
+<a name="book4"></a> <font size="-1">aus <span style="color:red ">[4]</span>:</font>
 &nbsp;
 
 Nicht Aufschneider oder Wortkünstler und auch nicht Schausteller der bei der Masse heftig begehrten Bildung
@@ -295,7 +295,7 @@ Wie verhält sich der gelassene Mensch gegenüber seinen Nächsten? >>Er hat Gem
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[6]</span>:</font>  
+<a name="book6"></a> <font size="-1">aus <span style="color:red ">[6]</span>:</font>  
 
 &nbsp;
 
@@ -338,7 +338,7 @@ Die Wahrnehmung von Körperempfindungen, die von Akzeptanz und Gleichmut getrage
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[10]</span>:</font>  
+<a name="book10"></a> <font size="-1">aus <span style="color:red ">[10]</span>:</font>  
 
 
 >[...] "Das Denken und die  Erkenntnis muss von innen kommen. Vom Innerlich werden, fängt alles Wissen und Begreifen. Man muss , z.B. als Historiker, die alten Zeiten in sich aufleben lassen, man muss sich versenken in die alten Zeiten. Man muss die Ruinen sehen, man muss die Bilder sehen von damals. Dann erst, wenn man das verinnerlicht hat, kann man darüber schreiben. Das ist ein typisch romantischer Gedanke. Philosophie ist nichts anderes als eine Naturlehre unseres Geistes. Das System der Natur ist zugleich das System unseres Geistes." [...]

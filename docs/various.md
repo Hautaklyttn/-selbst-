@@ -265,7 +265,7 @@ dem alten Ideal der Ausgeglichenheit und des rechten Maßes (sophrosyne). [...]
 
 &nbsp;
 
-(#book5)<font size="-1">aus <span style="color:red ">[5]</span>:</font>  
+<a name="book5"></a> <font size="-1">aus <span style="color:red ">[5]</span>:</font>
 
 &nbsp;
 

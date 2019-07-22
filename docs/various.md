@@ -350,6 +350,28 @@ Es kann auch sein, dass Sie über etwas nachdenken was gerade jetzt geschieht, e
 
 &nbsp;
 
+<a name="book7"></a> <font size="-1">aus <span style="color:red ">[7]</span>:</font>  
+
+&nbsp;
+
+*Glück als Charakterfrage?*  
+Es war für Sokrates so wichtig, Antworten auf seine Fragen nach der Tapferkeit oder der Frömmigkeit zu bekommen, weil er davon überzeugt war, dass es ausschließlich von uns selbst, von unserem Charakter abhängt, ob unser Leben gelingt oder nicht, ob wir glücklich werden oder nicht. Unser Glück ist einzig und allein eine Frage unseres Charakters. Das ganze Bemühen des Menschen muss also darauf hinauslaufen, die richtigen Charaktereigenschaften auszuprägen, also bzw. tapfer und fromm zu sein. Deswegen müssen wir wissen, was Tapferkeit und Frömmigkeit ist. Nur wenn wir das wissen, können wir sicher sein, unseren Charakter richtig auszubilden und das glückliche Leben nicht zu verfehlen.  
+Die Überzeugung, dass einzig und allein der Charakter zählt und alles andere demgegenüber sekundär ist - sofern es überhaupt zählt! - ist damals wie heute eine Provokation. Sokrates formuliert das sehr pointiert: >> Die Tugend kommt nicht vom Reichtum, sondern der Reichtum von der Tugend. << Der Begriff der Tugend, der bei Sokrates wie auch bei späteren Philosophen eine so zentrale Rolle spielt, klingt in unseren Ohren etwas verstaubt und moralisch dazu. So war er ursprünglich aber nicht gemeint. Wenn Sokrates und mit ihm die >>alten Griechen<< davon sprechen, dass etwas tugendhaft ist, dann meinen sie, dass sich etwas in bestmöglichen Zustand befindet. Ein tugendhaftes Messer ist eines, das über Eigenschaften verfügt, die ermöglichen, dass man mit ihm sehr gut schneiden kann. Tugendhafte Augen wären Augen, die über Eigenschaften verfügen, die eine besondere Sehkraft und -schärfe ermöglichen.  
+> Ein tugendhafter Mensch ist jemand, der sich in seinem bestmöglichen Zustand befindet.  
+
+Und das widerum bedeutet, dass er ein gutes, ein glückliches Menschenleben führt.  
+
+[...] Die entscheidende Frage ist dabei natürlich, was ein Mensch braucht, um in seinem bestmöglichen Zustand zu sein. Bei einem Messer ist es klar: Es muss über eine scharfe Klinge verfügen. Beim Menschen sind die Eigenschaften schwerer zu bestimmen. Sokrates Provokation liegt nun in seiner Auffassung, dass weder Besitz noch Einfluss, Macht, Ruhm, Ansehen, blendende Gesundheit, sexuelle Attraktivität oder körperliche Schönheit das gute Leben garantieren, sondern einzig und allein die Tugenden unseres Charakters. Wir müssen einen guten Charakter ausbilden, wenn unser Leben gelingen soll!  
+
+
+
+
+
+
+
+
+&nbsp;
+
 <a name="book10"></a> <font size="-1">aus <span style="color:red ">[10]</span>:</font>  
 
 

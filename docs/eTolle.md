@@ -4,10 +4,10 @@ layout: default
 
 [Back](./)
 
-<span style="color:red ">[1]</span> *Leben im Jetzt*  
-<span style="color:red ">[2]</span> *Jetzt! Die Kraft der Gegenwart*  
-<span style="color:red ">[3]</span> *Stille Spricht*  
-<span style="color:red ">[4]</span> *Eine neue Erde*  
+[[1]](#book1) *Leben im Jetzt*  
+[[2]](#book2) *Jetzt! Die Kraft der Gegenwart*  
+[[3]](#book3) *Stille Spricht*  
+[[4]](#book4) *Eine neue Erde*  
 
 &nbsp;
 
@@ -15,7 +15,7 @@ layout: default
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[1]</span>:</font>  
+<a name="book1"></a> <font size="-1">aus <span style="color:red ">[1]</span>:</font>  
 
 &nbsp;
 
@@ -93,7 +93,7 @@ Und dann sieh, wie das Wunder der Hingabe großes Leid in tiefen Frieden verwand
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[2]</span>:</font>  
+<a name="book2"></a> <font size="-1">aus <span style="color:red ">[2]</span>:</font>  
 
 &nbsp;
 

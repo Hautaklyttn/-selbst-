@@ -4,8 +4,8 @@ layout: default
 
 [Back](./)
 
-<span style="color:red ">[1]</span> *Der wunde Punkt*  
-<span style="color:red ">[2]</span> *Ändere deine Gedanken - Die lebendige Weisheit des TAO*  
+[[1]](#book1) *Der wunde Punkt*  
+[[2]](#book2) *Ändere deine Gedanken - Die lebendige Weisheit des TAO*  
 
 &nbsp;
 
@@ -13,7 +13,7 @@ layout: default
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[1]</span>:</font>  
+<a name="book1"></a> <font size="-1">aus <span style="color:red ">[1]</span>:</font>  
 
 &nbsp;
 

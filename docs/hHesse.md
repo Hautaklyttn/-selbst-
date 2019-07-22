@@ -4,14 +4,14 @@ layout: default
 
 [Back](./)
 
-<span style="color:red ">[1]</span> *Die Einheit hinter den Gegensätzen*  
-<span style="color:red ">[2]</span> *Das Leben bestehen*  
-<span style="color:red ">[3]</span> *Wer lieben kann, ist glücklich*  
-<span style="color:red ">[4]</span> *Eigensinn macht Spaß*  
-<span style="color:red ">[5]</span> *Jedem Anfang wohnt ein Zauber inne*  
-<span style="color:red ">[6]</span> *Siddharta*  
-<span style="color:red ">[7]</span> *Demian*  
-<span style="color:red ">[8]</span> *Unterm Rad*  
+[[1]](#book1) *Die Einheit hinter den Gegensätzen*  
+[[2]](#book2) *Das Leben bestehen*  
+[[3]](#book3)*Wer lieben kann, ist glücklich*  
+[[4]](#book4)*Eigensinn macht Spaß*  
+[[5]](#book5) *Jedem Anfang wohnt ein Zauber inne*  
+[[6]](#book6)*Siddharta*  
+[[7]](#book7) *Demian*  
+[[8]](#book8) *Unterm Rad*  
 
 &nbsp;
 
@@ -19,7 +19,7 @@ layout: default
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[1]</span>:</font>  
+<a name="book1"></a> <font size="-1">aus <span style="color:red ">[1]</span>:</font>  
 &nbsp;
 
 [...] Die christliche Lehre lässt den Menschen aus Leib, Seele und Geist bestehen, und auch die
@@ -111,7 +111,7 @@ Herzen der Welt. Jede weiß von den Wegen, aus dem Götzendienst am "Ich" einen 
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[3]</span>:</font>  
+<a name="book3"></a> <font size="-1">aus <span style="color:red ">[3]</span>:</font>  
 
 &nbsp;
 
@@ -162,7 +162,7 @@ wenn sie von den besten Absichten ausgeht, halte ich für nutzlos. [...]
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[5]</span>:</font>  
+<a name="book5"></a> <font size="-1">aus <span style="color:red ">[5]</span>:</font>  
 
 &nbsp;
 
@@ -233,7 +233,7 @@ die vollkommene Seligkeit), dann sehen die Menschen anders aus als sonst. Sie si
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[2]</span>:</font>
+<a name="book2"></a> <font size="-1">aus <span style="color:red ">[2]</span>:</font>
 
 &nbsp;
 
@@ -244,7 +244,7 @@ Und das wieder hängt innig mit den Ergebnissen der Psychoanalyse für das Ethis
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">[4]</span>:</font>
+<a name="book4"></a> <font size="-1">aus <span style="color:red ">[4]</span>:</font>
 
 &nbsp;
 

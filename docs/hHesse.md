@@ -6,10 +6,10 @@ layout: default
 
 [[1]](#book1) *Die Einheit hinter den Gegensätzen*  
 [[2]](#book2) *Das Leben bestehen*  
-[[3]](#book3)*Wer lieben kann, ist glücklich*  
-[[4]](#book4)*Eigensinn macht Spaß*  
+[[3]](#book3) *Wer lieben kann, ist glücklich*  
+[[4]](#book4) *Eigensinn macht Spaß*  
 [[5]](#book5) *Jedem Anfang wohnt ein Zauber inne*  
-[[6]](#book6)*Siddharta*  
+[[6]](#book6) *Siddharta*  
 [[7]](#book7) *Demian*  
 [[8]](#book8) *Unterm Rad*  
 

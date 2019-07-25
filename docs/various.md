@@ -21,8 +21,7 @@ layout: default
 
 &nbsp;
 
-<a name="book1"></a> <font size="-1">aus <span style="color:red ">[1]</span>:</font>  
-
+<a name="book1"></a> <font size="-1">aus <span style="color:red ">[1]</span>:</font>
 &nbsp;
 
 > "Werde, wer du bist."  
@@ -295,8 +294,7 @@ Wie verhält sich der gelassene Mensch gegenüber seinen Nächsten? >>Er hat Gem
 
 &nbsp;
 
-<a name="book6"></a> <font size="-1">aus <span style="color:red ">[6]</span>:</font>  
-
+<a name="book6"></a> <font size="-1">aus <span style="color:red ">[6]</span>:</font>
 &nbsp;
 
 Wissenschaftliche Untersuchungen ergaben, dass sich die Erfahrungen von Meditierenden tatsächlich entlang einer Tiefendimension entfalten. Man untersuchte klassische Texte buddhistischer, christlicher, hinduistischer und daoistischer  Traditionen, die eine Abfolge von Stufen zunehmender Vertiefung im Verlauf der Meditationspraxis beschreiben:  
@@ -350,8 +348,7 @@ Es kann auch sein, dass Sie über etwas nachdenken was gerade jetzt geschieht, e
 
 &nbsp;
 
-<a name="book7"></a> <font size="-1">aus <span style="color:red ">[7]</span>:</font>  
-
+<a name="book7"></a> <font size="-1">aus <span style="color:red ">[7]</span>:</font>
 &nbsp;
 
 *Glück als Charakterfrage?*  
@@ -387,7 +384,7 @@ Die verschiedenen kognitiven und affektiven Einstellungen, die wir im Modell des
 
 &nbsp;
 
-<a name="book10"></a> <font size="-1">aus <span style="color:red ">[10]</span>:</font>  
-
+<a name="book10"></a> <font size="-1">aus <span style="color:red ">[10]</span>:</font>
+&nbsp;
 
 >[...] "Das Denken und die  Erkenntnis muss von innen kommen. Vom Innerlich werden, fängt alles Wissen und Begreifen an. Man muss, z.B. als Historiker, die alten Zeiten in sich aufleben lassen, man muss sich versenken in die alten Zeiten. Man muss die Ruinen sehen, man muss die Bilder sehen von damals. Dann erst, wenn man das verinnerlicht hat, kann man darüber schreiben. Das ist ein typisch romantischer Gedanke. Philosophie ist nichts anderes als eine Naturlehre unseres Geistes. Das System der Natur ist zugleich das System unseres Geistes." [...]

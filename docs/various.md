@@ -265,7 +265,6 @@ dem alten Ideal der Ausgeglichenheit und des rechten Maßes (sophrosyne). [...]
 &nbsp;
 
 <a name="book5"></a> <font size="-1">aus <span style="color:red ">[5]</span>:</font>
-
 &nbsp;
 
 [...] In welcher Sprache man auch nach Wörtern sucht: Man wird viele finden, in denen das deutsche Wort "Gelassenheit" an- und widerklingt, aber keines, mit dem es sich befriedigend übersetzen ließ.  

@@ -222,7 +222,50 @@ Zusammenwirken mit der Natur interessiert und weniger daran, die zu kontrolliere
 werden.  
 Im hohen Alter sprach Jung über dieses Vertrauen: "Zuzeiten bin ich ausgebreitet in die Landschaft und in
 die Dinge und lebe selber in jedem Baum, im Plätschern der Wellen, in den Wolken, den Tieren, die kommen und
-gehen. Hier ist Raum für das raumlose Reich des Hintergrunds." [...]
+gehen. Hier ist Raum für das raumlose Reich des Hintergrunds." [...]  
+
+[...] Bei seinen häufigen Gewissensprüfungen kam er sich auf die Schliche, wie er sich für seine Armut bewunderte und seine Selbstentäußerung mit der anderer Mönche verglich. Er stellte fest, dass er zu sehr an seinem Nicht-Anhaften haftete und zu viel auf das äußere Erscheinungsbild seiner Heiligkeit gab.  
+Die fruchlosen Anstrengungen, sein Ego abzutöten. strengten ihn immer mehr an. Seine Persönlichkeit veränderte sich: Er wurde immer reizbarer,oft mangelte es ihm an Liebe zu seinen Brüdern. Das demütigte ihn sehr.  
+Schließlich, als er völlig erschöpft war, beschloss er, sich zu verhalten wie alle anderen auch: Er zog sich angemessen an, aß, akzeptierte Komplimente, sprach über sich wie die anderen Mönche.  
+Statt verzweifelt zu versuchen, sein Ego auszulöschen, machte er sich daran, sich selbst zu lieben.  
+
+[...] Ist es notwendig, den eigenen Selbstwert aufzugeben, um zur Selbstwerdung zu gelangen? Manche spirituelle Autoren sehen das Selbstwertgefühl als hinderlich für das spirituelle Leben und deren Wachstum an. Die spirituellen Ideale, die man ihrer Darstellung nach verfolgen soll, heißen >>Tod des Ego<<, >>Selbstauflösung<<, >>Abwesenheit des Ich<< oder >>dem ich sterben<<. Derart "mörderische" Ansätze fügen dem psychologischen und spirituellen Wachstum eines Menschen großen Schaden zu. Darüber hinaus erzeugen sie die Illusion, wir könnten uns selbst vollkommen beherrschen und nähren so den spirituellen Hochmut.  
+
+[...] Er sieht das Ego eher als Abbild der Selbst an. Das Selbst ist die Flamme, die sich in einem Spiegel spiegelt, das Ego ist die Reflexion oder das Abbild des Selbst. Die Reflexion verdankt ihre Existenz der Flamme. Solange die Reflexion nicht verzerrt ist, wird sie die echte Flamme getreu wiedergeben, sie sind fast miteinander identisch. So verhält es sich auch mit dem Ego. Solange es seine Abhängigkeit vom Selbst anerkennt und sich dessen Anleitung fügt, wird das Ego dem Selbst immer ähnlicher werden, bis es sein getreues Abbild wird. Leugnet das Ego jedoch seine Abhängigkeit vom Selbst, entweder aus Unwissenheit oder aber aus hochmütiger Eitelkeit (Hybris), entfernt es sich selbst von seiner lebendigen Quelle und gleicht sich nicht weiter dem Selbst an. Das Ego hält sich dann sogar fälschlich für den Mittelpunkt des psychischen Lebens, obwohl es sich in einer Umlaufbahn um das Selbst bewegt. Es ist dann nichts weiter als ein deformiertes Abbild des Selbst, abgetrennt von seinem schöpferischen Ursprung, entfremdet sich das Ego allmählich immer weiter vom Selbst.  
+
+[...] Wir lassen uns gerne zu dem Glauben verleiten, das Ego oder das Bewusstsein sei der Herrscher über unsere gesamte psychische Aktivität. Doch das stimmt nicht! Nach Jung hängt das Ego vom Selbst ab, von dem es sowohl seine Substanz bezieht als auch die Kraft zum Wachstum. Nicht "Ich" erschaffe mich, sondern das Selbst. Das Ego muss also, obwohl es mit sich identisch bleibt, -nicht ganz freiwillig- dem Selbst Platz machen.  
+
+[...] Das Ego muss sich also ständig mit dem symbolischen Offenbarungen beschäftigen, die das Selbst durch Träume und Gipfelerfahrungen übermittelt, wie konfus und beunruhigend diese auch immer erscheinen mögen. Vertraut das bewusste Ich dem Selbst und seinen symbolischen Botschaften, wird es umso mehr aufblühen, weil es nun an seine spirituelle Quelle angeschlossen ist. Zu dem heilsamen Effekten, die dieser Austausch für das Ego zeitigt, gehört unter anderen die Fähigkeit, bedingungslos annehmen und lieben zu können, die Erfahrung einer tief gehenden Harmonie mit sich selbst und mit dem Universum, der Gewinn von Weisheit, die Fähigkeit, sich selbst zu heilen, sowie die Entdeckung der eigenen, persönlichen Mission, die das Universum für jeden bereithält.  
+
+[...] Das Selbst, das wir mit der "vom göttlichen bewohnten Seele" gleichgesetzt haben, lässt sich in Gipfelerfahrungen erkennen, die oft symbolischer Natur sind. Unter anderem offenbaren sich diese Eruptionen des Selbst ins Feld des Bewusstseins auf folgende Weise:  
+- im Gefühl, bedingungslos geliebt zu sein  
+- in der Suche nach einer Weisheit, die dem Leben und dem Sterben Sinn gibt  
+- in der Heilung von Krankheiten, wodurch konflikthafte Persönlichkeitsanteile miteinander versöhnt und harmonisiert werden  
+- durch die Entdeckung der persönlichen Mission  
+
+Viele Menschen haben keine Ahnung, dass in ihnen das Selbst existiert, und leben deshalb auf der Ebene des Ego. Auch wenn das Ego meint, die Herrschaft im Leben des Menschen innezuhaben, wird es auf subtile Weise vom Selbst gelenkt. Das Ego spielt eine wichtige Rolle, aber es steht immer unter der Leitung des Selbst. Wenn das Ego die Weisungen des Selbst ignoriert oder dagegen rebelliert, gerät der Mensch aus dem Gleichgewicht und läuft Gefahr, körperliche, psychische oder spirituelle Krankheiten zu entwickeln. Das Ego bleibt keine andere Wahl als dem Selbst zu folgen, wenn es sich nicht auflösen will.  
+&nbsp;
+
+> "Ich glaube, der spirituelle Weg besteht darin, dass wir zu unseren Anfängen zurückkehren, das heißt zur Erfahrung des Seins."  
+> <font size="-1">(Richard Moss)</font>
+
+&nbsp;
+
+<span style="color:red ">Spirituelles Leben bedeutet, das innere Leben und seine Äußerungen immer gründlicher zu erforschen: Bilder, Tagträume, kreative Visionen, innere Dialoge und Emotionen. Es ist nicht leicht, sich nach innen zu wenden und zuzulassen, wie die Flut an Bildern, Worten und Emotionen uns überschwemmt und aufrüttelt. Die meisten Menschen bleiben lieber draußen, außerhalb ihrer selbst. Statt sich auf die Botschaften von innen einzulassen, lenken sie sich mit allerlei Zeitvertreib und durch ständiges Aktivsein ab. Sie verstehen sich darauf, die Seelenzustände zum Schweigen zu bringen, die ihren Gewohnheiten oder Wünschen entgegenstehen. Henri de Laux betont: "Weise sein heißt, sich selbst zu sammeln und sich auf den Ort konzentrieren, von dem alles entspringt. Das ist die heiligste Handlung, das ist Liebe, das ist Weisheit, das ist Einheit."  
+Das wichtigste Verfahren, um das Erwachen des Bwusstseins der inneren Welt zu fördern, ist die Meditation. Damit die Aufmerksamkeit auf das Innere gerichtet bleibt, achtet der Meditierende bewusst auf den Atemrhythmus oder konzentriert sich auf die Wiederholung eines Mantras oder eines Wortes. Dann lässt er die Flut von Wörtern, Bildern und Emotionen ins Bewusstsein kommen. Er lässt sie vorbeiziehen wie Wolken am Himmel. Auf diese Weise lernen wir, uns von diesen inneren Phänomenen zu distanzieren, und können verhindern, dass sie uns zu fest im Griff haben. So entwickeln wir mit der Zeit, die innere Haltung der Gelassenheit und gewinnen damit immer mehr Freiheit. Diese Übung wird in einem Yoga-Sutra so beschrieben: >>Indem wir die Bewegung des Atmens beobachten, ob er tief oder flach, regelmäßig oder unregelmäßig geht, wird das Atmen feiner und länger. Dann bricht auf, was das Licht verborgen hat, und der Geist kann sich zentrieren.<<</span>    
+
+&nbsp;
+
+> "Fürchte nicht die Armut, nicht Verbannung, Gefängnis oder Tod. Fürchte vielmehr die Furcht."  
+> <font size="-1">(Epiklet)</font>
+
+&nbsp;
+
+"Spirituell leben heißt, nach und nach die Frucht abzubauen," sagte ein weise Meister seinen Schülern. Das Ego lebt in ständiger Furcht: in der Furcht etwa, nicht akzeptiert zu werden, nicht geschätzt, bewundert oder geliebt zu werden. Der größte Schrecken ist der vor dem Tod. Das Selbst indessen lebt außerhalb der Zeit. Es ist im Kontakt mit der unveränderlichen Wirklichkeit, mit der kreativen Intelligenz des Kosmos. Es verfügt über eine Sichtweise, in der der Tod nicht vorkommt. Es geht durchs Leben, ohne vor Widerständen zurückzuweichen, nicht einmal vor der Unausweichlichkeit des Todes.  
+Das Ego gerät beim Gedanken an den Tod in Panik, das Selbst dagegen bleibt ruhig und gelassen, weil es zu sterben versteht und bereit ist für ein anderes Leben. Diesen Schluss zog die Jung-Schülerin Marie-Louise von Franz aus ihren Untersuchungen der Träume von Menschen, die an einer tödlichen Krankheit litten. Ihre Träume, die aus dem Selbst kommen, enthielten Symbole der Wiedergeburt. Ihr Unbewusstes sagte ihnen, dass es ein Leben nach dem Tod gibt.  
+
+
+
 
 &nbsp;
 

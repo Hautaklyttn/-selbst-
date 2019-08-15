@@ -530,7 +530,7 @@ Zahlreiche neuere klinische Studien haben ergeben, dass Meditation einen zutiefs
 
 Spazieren zu gehen ist eine vortreffliche Übung und hervorragend geeignet, um Stress abzubauen und die Stimmung zu heben. Ein guter Gang durch die frische Luft kann die Perspektive wieder ins Lot bringen und überreizte Nerven beruhigen. Wenn sie sich wirklich 'lebendig' fühlen wollen, machen Sie sich bei Wind oder Regen auf den Weg!  
 
->> "Die innere Haltung, aus der heraus wir handeln, wie oft von ebensolcher Bedeutung wie die Handlung selbst."  
+> "Die innere Haltung, aus der heraus wir handeln, wie oft von ebensolcher Bedeutung wie die Handlung selbst."  
 
 Nehmen Sie sich einen Moment, damit sich dieser Gedanke wirklich setzen kann. Wenn wir an etwas auf negative oder kritische Weise herangehen, uns zu viele Gedanken machen, uns sorgen oder eine Aufgabe mit zusammengebissenen Zähnen erledigen, aktivieren wir damit unsere inneren Abwehrmechanismen. Dadurch verengt sich unser Blickwinkel. Wir geraten in die Rolle einer Maus mit Eulenkomplex: Wir sind ängstlicher, weniger flexibel und kreativ. Tun wir exakt das Gleiche jedoch bereitwillig und mit offenem Herzen, setzen wir damit unsere inneren >>Annäherungsmechanismen<< in Gang, sodass wir in unserem Leben reicher, warmherziger, flexibler und kreativer sein können.  
 

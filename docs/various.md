@@ -543,6 +543,29 @@ Nehmen Sie sich einen Moment, damit sich dieser Gedanke wirklich setzen kann. We
 [...] Albert Einstein hat ebenso wie unzählige Wissenschaftler und Philosophen aller Zeiten stets auf die Wichtigkeit von Freundlichkeit, Mitgefühl und Neugier im Alltag hingewiesen. Er hielt diese nicht nur im allgemein für wichtige Tugenden, sondern sah in ihnen auch den Schlüssel zu einem klaren Denken und einem produktiveren Lebens- und Arbeitsstil. Er geriet nicht in die Falle zu glauben, dass Härte im Umgang mit sich selbst und anderen zum Erfolg führt. Vielmehr war ihm bewusst, dass wir zu dieser Annahme nur deswegen gelangen, weil wir unsere Erfolge der barschen, fordernden Stimme in uns zuschreiben, statt auf die leiseren, vernünftigeren Töne zu hören. Er schrieb:  
 "Ein Mensch ist ein Teil jenes Ganzen, das wir Universum nennen, ein in Zeit und Raum begrenzter Teil. Er erlebt sich, seine Gedanken und Gefühle als etwas von allem Übrigen getrenntes, als eine Art optische Sinnestäuschung. Diese Täuschung ist wie ein Gefängnis für uns, denn sie beschränkt uns auf unsere persönlichen Wünsche und die Zuneigung zu einigen wenigen uns besonders nahestehenden Personen. Es muss unsere Aufgabe sein, uns aus diesem Gefängnis zu befreien, indem wir den Radius unseres Mitgefühls auf alle Lebewesen und die Natur insgesamt in ihrer Schönheit ausdehnen. Niemand ist in der Lage, dies vollständig zu erreichen, doch allein es anzustreben ist Teil der Befreiung und ein Fundament für unsere innere Geborgenheit."  
 
+'Achtsamkeitsglöckchen'  
+Wählen Sie einige gewöhnliche Alltagsaktivitäten aus, um sie in >>Achtsamkeitsglöckchen<< zu verwandeln, sprich: in Signale zum Innehalten und Achtsamsein. Nachfolgend eine Liste von Tätigkeiten, die sich für diesen Zweck eignen:  
+ - Essen zubereiten: Das Zubereiten von Essen ist stets eine wunderbare Gelegenheit zum Achtsamsein - schauen, hören, schmecken, fühlen. Konzentrieren Sie sich! Wie fühlt es sich an, wenn das Messer  durch die unterschiedlichen Gemüsesorten schneidet? Welcher Geruch wird freigesetzt?  
+ - Essen: Versuchen Sie, einen Teil des Essens in Stille einzunehmen, ohne sich vom Fernseher oder Radio ablenken zu lassen. Konzentrieren Sie sich bewusst auf das Essen, auf seine Farben und Formen. Vielleicht gehen Sie auch dem Gedanken nach, wie die Speisen auf Ihren Teller gekommen sind. Und achten Sie darauf, wie es sich anfühlt, sie zu sich zu nehmen.  
+ - Spülen: Dies ist eine wunderbare Gelegenheit, um verschiedenste Empfindungen zu erforschen und immer wieder in den Jetzt-Moment zu kommen: das Spülen dieses einen Tellers, das Fließen des Wassers, das Hineinspüren in die Temperaturen und so weiter.  
+ - Auto fahren: Entscheiden Sie ganz bewusst, worauf Sie sich beim Autofahren konzentrieren möchten. Sollte es das bevorstehende Meeting oder etwas Ähnliches sein, dann ist das in Ordnung. Sie haben es so entschieden. Nutzen Sie eine gewisse Zeit dafür, sich in erster Linie auf das Fahren selbst zu konzentrieren. All die damit einhergehenden Empfindungen, die Bewegung ihrer Hände, Füße und so weiter, das visuelle Erfassen der Umgebung, das laufende Wechseln des Blicks von nah und fern und umgekehrt...  
+ - Gehen: Beobachten Sie alle Empfindungen, die mit dem Gehen verbunden sind. Achten Sie darauf, wann Ihre Gedanken abschweifen und kommen Sie wieder zurück ins bloße Gehen.  
+ - Zuhören: Achten Sie beim Zuhören darauf, wann Sie eben nicht zuhören - wann Sie anfangen, über etwas anderes nachzudenken, sich überlegen, was Sie antworten werde - und so weiter. Kehren Sie bewusst ins Zuhören zurück.  
+
+ [...] Mit Achtsamkeit lassen sich unsere Schwierigkeiten nicht direkt >>behandeln<<. Sie zeigt nur auf und bringt mit Gründlichkeit, aber immer auch mit Mitgefühl, die tieferen treibenden Kräfte ans Licht. Sie befasst sich mit den unterschwelligen Themen, die es im Leben eines jeden Einzelnen gibt. Und sobald diese ins Gewahrsein dringen, passiert etwas Erstaunliches: Die Negativität fängt ganz allmählich an, sich von allein aufzulösen. Unser endloses Streben, der Tunnelblick, die Grübelei, unsere Neigung, uns in unseren Gedanken zu verlieren, auf Autopilot zu funktionieren, uns von Negativität auffressen zu lassen und die Dinge zu vernachlässigen, die unsere Seele nähren - all dies sind Ausprägungen eines auf Hochtouren arbeitenden Tun-Modus. Wenn wir aufhören, sie als einen Feind zu betrachten, den wir besiegen müssen, schmelzen sie in der Wärme unseres von Herzen kommenden Gewahrseins dahin.  
+ Wir können Ihnen dies alles sagen - ja, wir können es Ihnen sogar mit den wirksamen Instrumenten nachweisen, die die Wissenschaft zu bieten hat -, aber um es wirklich zu verstehen, müssen Sie es selbst erfahren. Wir weben permanet an falschen Träumen. Warum weben wir uns nicht stattdessen einen Fallschirm, der uns gute Dienste leisten wird, wenn sich das Leben wieder einmal als schwierig erweist oder gar in die Brüche zu gehen droht. Achtsamkeit wird manchmal mit einem solchen Fallschirm verglichen. Aber dieser wird uns nicht helfen, wenn wir bereits kopfüber ins Verderben stürzen. Wir müssen tagtäglich an ihm weben, damit er für den Notfall bereit steht.  
+
+ Achtsamkeit kann in Notzeiten als Fallschirm dienen, aber Sie müssen täglich an ihm weben, damit er im Fall des Falles auch bereit ist:  
+  - Den Tag mit Achtsamkeit beginnen  
+  - Den Atemraum nutzen, um den Tag zu strukturieren  
+  - Die Praxis des Meditierens aufrechterhalten  
+  - Sich mit den eigenen Gefühlen anfreunden  
+  - Bei Müdigkeit, Enttäuschung, Nervosität, Ärger oder anderen starken Emotionen in den Atemraum gehen  
+  - Im Geist der Achtsamkeit handeln  
+  - Sich mehr bewegen  
+  - Den Atem nicht vergessen  
+  
+
 &nbsp;
 
 <a name="book10"></a> <font size="-1">aus <span style="color:red ">[10]</span>:</font>

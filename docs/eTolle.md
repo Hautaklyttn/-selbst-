@@ -235,12 +235,6 @@ Im Zustand der Erleuchtung bist du du selbst - »du« und »dein Selbst« versch
 
 &nbsp;
 
-<a name="book3"></a> <font size="-1">aus <span style="color:red ">[3]</span>:</font>  
-
-&nbsp;
-
-&nbsp;
-
 <a name="book3"></a> <font size="-1">aus <span style="color:red ">[3]</span>:</font>
 &nbsp;
 

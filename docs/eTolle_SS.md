@@ -6,6 +6,6 @@ layout: default
 
 &nbsp;
 
-<font size="-1">aus <span style="color:red ">Stille Spricht!</span>:</font>  
+<font size="-1">aus <span style="color:red ">Stille Spricht!</span></font>  
 
 &nbsp;

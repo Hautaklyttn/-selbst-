@@ -6,8 +6,7 @@ layout: default
 
 [[1]](#book1) *Leben im Jetzt*  
 [[2]](#book2) *Jetzt! Die Kraft der Gegenwart*  
-[[3]](#book3) *Stille Spricht*  
-[[4]](#book4) *Eine neue Erde*  
+[[3]](#book3) *Eine neue Erde*  
 
 &nbsp;
 
@@ -242,7 +241,7 @@ Im Zustand der Erleuchtung bist du du selbst - »du« und »dein Selbst« versch
 
 &nbsp;
 
-<a name="book4"></a> <font size="-1">aus <span style="color:red ">[4]</span>:</font>
+<a name="book3"></a> <font size="-1">aus <span style="color:red ">[3]</span>:</font>
 &nbsp;
 
 **Zeitweilige Rollen**  

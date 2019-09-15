@@ -327,7 +327,7 @@ identifizieren sich bis auf ein paar rühmliche Ausnahmen mit ihrer Rolle. Sie m
 bezeichnet werden, doch im Grunde sind sie nichts weiter als unbewusste Teilnehmer an einem
 Egospiel, einem Spiel, das ungeheuer wichtig wirkt, dem jedoch jeder echte Sinn fehlt. Es ist, um mit
 Shakespeare zu sprechen, »ein Märchen, von einem Narren erzählt, voller Schall und Wut und ohne
-Bedeutung«. 9 Erstaunlicherweise kam Shakespeare zu diesem Schluss, obwohl er die Segnungen des
+Bedeutung«. Erstaunlicherweise kam Shakespeare zu diesem Schluss, obwohl er die Segnungen des
 Fernsehens noch gar nicht kannte. Wenn das Ego-Erdenschauspiel überhaupt einen Sinn hat, dann
 einen indirekten: Es erzeugt immer mehr Leid auf der Erde, das zwar weitgehend durch das Ego
 verursacht wird, jedoch letztlich auch für dessen Zerstörung sorgt. Es ist das Feuer, in dem sich das Ego
@@ -559,7 +559,7 @@ du dich auf die Kraft des Universums aus. Was dem Ego wie Schwäche vorkommt, is
 einzig wahre Stärke. Diese spirituelle Wahrheit ist den Werten unserer heutigen Kultur und der Art und
 Weise, wie sie das Verhalten der Menschen konditioniert, diametral entgegengesetzt.  
 Das alte Tao Te King lehrt, man solle, statt ein Berg sein zu wollen, lieber »das Tal des Universums«
-sein.16 Auf diese Weise wird deine Ganzheit wiederhergestellt, und »alle Dinge werden zu dir kommen«.
+sein. Auf diese Weise wird deine Ganzheit wiederhergestellt, und »alle Dinge werden zu dir kommen«.
 Ähnliches sagt Jesus in einem seiner Gleichnisse: »Wenn du eingeladen bist, so geh hin und setz dich
 untenan, damit, wenn der kommt, der dich eingeladen hat, er zu dir sagt: Freund, rücke hinauf! Dann
 wirst du Ehre haben vor allen, die mit dir zu Tisch sitzen. Denn wer sich selbst erhöht, der soll erniedrigt

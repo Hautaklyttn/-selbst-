@@ -242,11 +242,10 @@ Im Zustand der Erleuchtung bist du du selbst - »du« und »dein Selbst« versch
 
 &nbsp;
 
-<a name="book4"></a> <font size="-1">aus <span style="color:red ">[4]</span>:</font>  
-
+<a name="book4"></a> <font size="-1">aus <span style="color:red ">[4]</span>:</font>
 &nbsp;
 
-*Zeitweilige Rollen*  
+**Zeitweilige Rollen**  
 Wenn du wach genug, also bewusst genug bist, um zu beobachten, wie du mit anderen Menschen
 interagierst, erkennst du unter Umständen die feinen Unterschiede, die sich je nachdem, mit wem du
 gerade in eine Beziehung trittst, in deiner Sprechweise, deiner Haltung und deinem Benehmen zeigen.
@@ -272,7 +271,7 @@ von Mensch zu Mensch in Wirklichkeit eine Beziehung zwischen vier erdachten Iden
 letztlich reine Fiktion sind. Darum verwundert es nicht, dass zwischenmenschliche Beziehungen so
 konfliktbeladen sind. Es gibt keine wahre Beziehung.  
 
-*Bewusstes Leiden*  
+**Bewusstes Leiden**  
 Wenn du kleine Kinder hast, dann hilf ihnen, leite sie an und beschütze sie, so gut du kannst, aber gib
 ihnen vor allen Dingen Raum - Raum zu sein. Sie kommen durch dich auf die Welt, aber sie gehören
 nicht dir. Die Überzeugung »Ich weiß am besten, was gut für dich ist« mag berechtigt sein, solange die
@@ -323,7 +322,7 @@ Subjekt und Objekt. Liebe ist also die Erkenntnis des Einsseins in einer dualist
 Geburt Gottes in die Welt der Form. Liebe nimmt der Welt etwas von ihrer Weltlichkeit, ihrer Dichte und
 lässt die göttliche Dimension durchscheinen, das Licht des reinen Bewusstseins.  
 
-*Das Rollenspiel aufgeben*  
+**Das Rollenspiel aufgeben**  
 In jeder Situation das zu tun, was geboten ist, ohne in eine Rolle zu verfallen und sich mit ihr zu
 identifizieren, ist eine entscheidende Übung für die Kunst des Lebens, die jeder von uns hier lernen
 muss. Du wirst perfekt in etwas, wenn du es um seinetwillen tust, statt dich damit an deine
@@ -378,7 +377,7 @@ Sein bist du niemandem unter- oder überlegen. Diese Erkenntnis führt zu wahrer
 Demut. Nach Ansicht des Ego schließen sich Selbstachtung und Demut gegenseitig aus. In Wahrheit
 sind sie jedoch ein und dasselbe.  
 
-*Arbeit - mit und ohne Ego*  
+**Arbeit - mit und ohne Ego**  
 Die meisten Menschen erleben Momente, in denen sie frei vom Ego sind. Diejenigen, die
 außergewöhnlich gut sind in dem, was sie tun, sind möglicherweise bei ihrer Arbeit ganz oder
 weitgehend frei vom Ego. Auch wenn sie es vielleicht gar nicht wissen, ist ihre Arbeit zur spirituellen
@@ -528,7 +527,7 @@ Nach einigen Malen ist diese Bewusstheit gewachsen und der Schmerzkörper schwä
 Das Kind gewinnt an Präsenz. Wie du merken wirst, wird dich eines Tages dein Kind darauf aufmerksam
 machen, dass dein Schmerzkörper von dir Besitz ergriffen hat.
 
-*Die Herabsetzung des Ego zulassen*  
+**Die Herabsetzung des Ego zulassen**  
 Das Ego ist stets auf der Hut vor allem, was es als Herabsetzung empfindet. In diesem Fall springen
 automatisch Reparaturmechanismen an, um die mentale Form des Ego wiederherzustellen. Wenn dich
 jemand tadelt oder kritisiert, empfindet das Ego dies als persönliche Kränkung und versucht sein
@@ -604,7 +603,7 @@ haben. Wenn die Welt nicht aus der Perspektive des Formlosen betrachtet wird, wi
 letzten Endes zu einem Ort der Verzweiflung. Das muss der alttestamentarische Prophet gespürt haben,
 als er schrieb: »Ich sah an alles Tun … und siehe, es war alles eitel und Haschen nach Wind.«  
 
-*Wahrnehmen ohne zu benennen*  
+**Wahrnehmen ohne zu benennen**  
 Die meisten Menschen sind sich nur beiläufig ihrer Umwelt bewusst, besonders, wenn ihre Umgebung
 ihnen vertraut ist. Die Stimme in ihrem Kopf nimmt den größten Teil ihrer Aufmerksamkeit in Anspruch.
 Manche Leute fühlen sich lebendiger, wenn sie unbekannte Orte oder fremde Länder bereisen, denn
@@ -644,7 +643,7 @@ Andere nennen es Frieden. Sobald das Bewusstsein nicht mehr total vom Denken ein
 bleibt ein Teil von ihm in seinem formlosen, unkonditionierten ursprünglichen Zustand erhalten. Das ist
 der innere Raum.  
 
-*Das Bewusstsein für den inneren Körper*  
+**Das Bewusstsein für den inneren Körper**  
 Eine weitere einfache, aber hoch wirksame Methode, den Raum in diesem Leben zu entdecken, ist eng
 mit dem Atem verbunden. Während du aufmerksam dem sanften Luftstrom folgst, der in deinen Körper
 ein- und wieder ausströmt, und fühlst, wie sich Brust und Bauch entsprechend heben und senken, wirst
@@ -673,7 +672,7 @@ dieser Übung vielleicht die Augen schließen wollen; öffne sie aber, sobald du
 spürst, und dann schau umher und fühle ihn dabei weiterhin. Manche Leser werden es nicht für nötig
 halten, die Augen zu schließen, denn sie können ihren inneren Körper spüren, während sie dies lesen.  
 
-*Sich selbst verlieren, um sich zu finden*  
+**Sich selbst verlieren, um sich zu finden**  
 Der innere Raum entsteht auch dann, wenn du dem Bedürfnis widerstehst, dein formales Selbst (deine
 Person) zu betonen. Dieses Bedürfnis kommt vom Ego. Es ist kein echtes Bedürfnis. Wir haben diesen
 Punkt schon kurz berührt. Immer wenn du eines dieser Verhaltensmuster aufgibst, entsteht innerer
@@ -701,7 +700,7 @@ Dich auf der Ebene der Form zurückzunehmen ist eine weitere Methode, Bewussthei
 Entdecke die gewaltige Kraft, die durch dich in die Welt strömt, wenn du dein formales Selbst nicht mehr
 betonst.  
 
-*Stille*  
+**Stille**  
 Es heißt: »Stille ist die Sprache Gottes, und alles andere ist eine schlechte Übersetzung.« Stille ist in
 Wahrheit ein anderes Wort für Raum. Uns der Stille bewusst zu werden, sobald wir ihr im Leben
 begegnen, verbindet uns mit der formlosen und zeitlosen Dimension in uns, die jenseits des Denkens
@@ -714,7 +713,7 @@ mentale Form angenommen hast, die »Person« genannt wird. Dann bist du auch so,
 wenn sich die Form wieder auflöst. In deiner Stille bist du das, was du jenseits deiner zeitlichen Existenz
 bist: reines Bewusstsein - unkonditioniert, formlos und ewig.  
 
-[...] Was genau meinst du mit »Sich-in-etwas-verlieren«?  
+[...] *Was genau meinst du mit »Sich-in-etwas-verlieren«?*  
 Du bist deinem Wesen nach Bewusstsein. Wenn sich das Bewusstsein (du) vollkommen mit dem
 Denken identifiziert und so seine wahre Natur vergisst, verliert es sich im Denken. Wenn es sich mit
 mental-emotionalen Mustern wie Begehren und Fürchten identifiziert - den Urtriebkräften des Ego -,
@@ -741,7 +740,7 @@ Bewusstseinszustand erschafft unsere Welt, und solange sich keine Veränderung a
 Ebene vollzieht, wird alles Handeln nichts Neues bewirken. Wir würden dabei die Welt nur in einer etwas
 abgewandelten Form immer wieder gleich erschaffen, eine Welt, die ein äußeres Spiegelbild des Ego ist.  
 
-*Die drei Modalitäten des erwachten Handelns*  
+**Die drei Modalitäten des erwachten Handelns**  
 Es gibt drei Arten, wie das Bewusstsein in das einfließen kann, was du tust, und dadurch in die Welt, drei
 Modalitäten, durch die du dein Leben auf die kreative Kraft des Universums ausrichten kannst. Unter
 Modalität ist die zugrunde liegende Energiefrequenz zu verstehen, die in das eingeht, was du tust, und

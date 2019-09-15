@@ -12,6 +12,7 @@ layout: default
 [[6]](#book6) *Siddharta*  
 [[7]](#book7) *Demian*  
 [[8]](#book8) *Unterm Rad*  
+[[8]](#book9) *China - Weisheit des Ostens*
 
 &nbsp;
 

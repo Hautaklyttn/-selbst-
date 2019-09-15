@@ -114,5 +114,5 @@ Das Bewußtsein steht gewöhnlich unter dem Einfluß von vielen Faktoren. Diese 
 
 &nbsp;
 
-<a name="book4"></a> <font size="-1">aus <span style="color:red ">[3]</span>:</font>
+<a name="book4"></a> <font size="-1">aus <span style="color:red ">[4]</span>:</font>
 &nbsp;

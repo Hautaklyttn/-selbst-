@@ -232,4 +232,573 @@ frei vom Denken und hast endlich Raum für Liebe, Freude und Frieden.
 
 Aber brauchst du überhaupt eine Beziehung zu dir selbst? Warum bist du nicht einfach du selbst? Wenn du eine Beziehung zu dir selbst hast, bist du zweigeteilt: »ich« und »mein Selbst«, Subjekt und Objekt. Diese vom Denken geschaffene Dualität ist die Grundursache für all die unnötigen Komplikationen, Probleme und Konflikte in deinem Leben.  
 
-Im Zustand der Erleuchtung bist du du selbst - »du« und »dein Selbst« verschmelzen miteinander. Du beurteilst dich nicht und bedauerst dich nicht, du bist nicht stolz auf dich, du liebst dich nicht und hasst dich nicht usw. Die durch die Selbstreflexion des Bewusstseins bewirkte Spaltung ist beseitigt, ihr Fluch aufgehoben. Da ist kein »Selbst«, das du weiterhin nähren, schützen oder verteidigen müsstest. Wenn du erleuchtet bist, fällt eine Beziehung für dich weg: die Beziehung zu dir selbst. Sobald du diese Beziehung aufgegeben hast, verwandeln sich all deine anderen Beziehungen in Liebesbeziehungen.
+Im Zustand der Erleuchtung bist du du selbst - »du« und »dein Selbst« verschmelzen miteinander. Du beurteilst dich nicht und bedauerst dich nicht, du bist nicht stolz auf dich, du liebst dich nicht und hasst dich nicht usw. Die durch die Selbstreflexion des Bewusstseins bewirkte Spaltung ist beseitigt, ihr Fluch aufgehoben. Da ist kein »Selbst«, das du weiterhin nähren, schützen oder verteidigen müsstest. Wenn du erleuchtet bist, fällt eine Beziehung für dich weg: die Beziehung zu dir selbst. Sobald du diese Beziehung aufgegeben hast, verwandeln sich all deine anderen Beziehungen in Liebesbeziehungen.  
+
+&nbsp;
+
+<a name="book3"></a> <font size="-1">aus <span style="color:red ">[3]</span>:</font>  
+
+&nbsp;
+
+&nbsp;
+
+<a name="book4"></a> <font size="-1">aus <span style="color:red ">[4]</span>:</font>  
+
+&nbsp;
+
+*Zeitweilige Rollen*  
+Wenn du wach genug, also bewusst genug bist, um zu beobachten, wie du mit anderen Menschen
+interagierst, erkennst du unter Umständen die feinen Unterschiede, die sich je nachdem, mit wem du
+gerade in eine Beziehung trittst, in deiner Sprechweise, deiner Haltung und deinem Benehmen zeigen.
+Zuerst sind die Unterschiede wahrscheinlich leichter bei anderen aufzuspüren, aber dann wirst du sie
+auch bei dir selbst entdecken können. Im Gespräch mit dem Chef deiner Firma verhältst du dich
+vermutlich anders als bei einer Unterhaltung mit dem Hausmeister. Mit einem Kind wirst du anders
+sprechen als mit einem Erwachsenen. Woran liegt das? Du spielst verschiedene Rollen. Du bist nicht du
+selbst, weder gegenüber dem Chef noch gegenüber Hausmeister und Kind. Ob du in einem Laden
+etwas einkaufst, ein Restaurant besuchst, zur Bank gehst oder zur Post, immer schlüpfst du in
+vorgegebene soziale Rollen. Bist du ein Kunde, sprichst und handelst du auch als solcher. Und vom
+Personal oder dem Kellner, die ebenfalls ihre Rolle spielen, wirst du auch als Kunde behandelt. Eine
+ganze Reihe von konditionierten Verhaltensmustern wird zwischen zwei Menschen aktiviert und bestimmt
+das Wesen der Interaktion. Nicht die Menschen treten in eine Wechselbeziehung miteinander, sondern
+mentale Bilder und Begriffe. Je stärker sich die Leute mit ihren jeweiligen Rollen identifizieren, umso
+unechter werden die Beziehungen.  
+Du machst dir nicht nur ein Bild von der anderen Person, sondern auch von dir selbst, besonders in
+Beziehung zu jemandem, mit dem du dich gerade befasst. Nicht du bist es folglich, der mit der
+betreffenden Person in eine Beziehung tritt, sondern der du zu sein glaubst mit dem, wofür du den
+anderen hältst, und umgekehrt. Das Bild, das du dir im Geiste von dir gemacht hast, tritt in eine
+Wechselbeziehung zu seiner eigenen Schöpfung, dem Bild, das es sich von der anderen Person
+gemacht hat. Und die andere Person hat vermutlich das Gleiche getan, sodass jede egohafte Interaktion
+von Mensch zu Mensch in Wirklichkeit eine Beziehung zwischen vier erdachten Identitäten ist, die
+letztlich reine Fiktion sind. Darum verwundert es nicht, dass zwischenmenschliche Beziehungen so
+konfliktbeladen sind. Es gibt keine wahre Beziehung.  
+
+*Bewusstes Leiden*  
+Wenn du kleine Kinder hast, dann hilf ihnen, leite sie an und beschütze sie, so gut du kannst, aber gib
+ihnen vor allen Dingen Raum - Raum zu sein. Sie kommen durch dich auf die Welt, aber sie gehören
+nicht dir. Die Überzeugung »Ich weiß am besten, was gut für dich ist« mag berechtigt sein, solange die
+Kinder klein sind, aber je älter sie werden, umso weniger trifft sie zu. Je mehr Erwartungen du hegst, wie
+sich ihr Leben entfalten sollte, umso mehr bist du in deinem Denken befangen, statt für sie präsent zu
+sein. Natürlich werden sie Fehler machen und in der einen oder anderen Weise leiden, wie alle
+Menschen. Aber möglicherweise sind die Fehler nur aus deiner Sicht Fehler. Was für dich ein Fehler sein
+mag, ist für sie vielleicht genau das, was sie tun oder erfahren müssen. Lass ihnen so viel Hilfe und
+Anleitung zukommen, wie du kannst, aber sei dir darüber im Klaren, dass du ihnen auch erlauben musst,
+Fehler zu machen, besonders wenn sie anfangen erwachsen zu werden. Bisweilen musst du ihnen sogar
+zugestehen, dass sie leiden dürfen. Leid kann aus heiterem Himmel über sie kommen oder als Folge
+ihrer eigenen Fehler. Wäre es nicht wunderbar, wenn du ihnen alles Leid ersparen könntest? Nein, das
+wäre es nicht. Sie würden sich menschlich nicht weiterentwickeln, sondern oberflächlich bleiben und sich
+mit der äußeren Form der Dinge identifizieren. Leid führt uns in die Tiefe. Das Paradox ist, dass Leid
+durch die Identifikation mit Form entsteht und zugleich die Identifikation mit Form untergräbt. Leid wird
+vom Ego verursacht, obgleich letztlich Leid das Ego zerstört - allerdings erst, wenn das Leid bewusst
+erlebt wird.  
+Die Menschheit ist dazu bestimmt, über das Leiden hinauszugehen, aber nicht so, wie das Ego meint.
+Eine der vielen fälschlichen Annahmen des Ego, einer seiner vielen wahnhaften Gedanken lautet: »Ich
+sollte nicht leiden müssen.« Manchmal wird dieser Gedanke auch auf jemanden übertragen, der einem
+nahesteht: »Mein Kind sollte nicht leiden müssen.« Dieser Gedanke selbst ist die Wurzel des Leidens.
+Das Leiden hat einen edlen Sinn: Es soll die Evolution des Bewusstseins vorantreiben und das Ego
+verbrennen. Der Mensch am Kreuz ist das archetypische Bild dafür. Er steht für jeden Mann und jede
+Frau. Solange du dich gegen das Leiden wehrst, geht dieser Prozess nur langsam voran, denn
+Widerstand baut mehr Ego auf, das verbrannt werden muss. Wenn du hingegen das Leiden annimmst,
+beschleunigt sich der Prozess, weil du jetzt bewusst leidest. Du kannst dein eigenes Leiden annehmen,
+aber du kannst auch das Leiden anderer, deiner Kinder oder Eltern zum Beispiel, annehmen. Inmitten
+des bewussten Leidens liegt bereits die Umwandlung begründet. Das Feuer des Leidens wird zum Licht
+des Bewusstseins.  
+Das Ego sagt: »Ich sollte nicht leiden müssen«, und dieser Gedanke sorgt dafür, dass du noch viel
+mehr leidest. Er ist eine Verzerrung der Wahrheit und als solche immer paradox. In Wahrheit musst du Ja
+zum Leiden sagen, ehe du darüber hinausgehen kannst.  
+
+[...] Lieben heißt, sich selbst im anderen erkennen. Das »Anderssein« des anderen enthüllt sich dann als
+Illusion, die der rein menschlichen Ebene angehört, dem Reich der Form. Die Sehnsucht nach Liebe, die
+jedes Kind in sich trägt, ist das Verlangen nach Anerkennung, nicht auf der Ebene der Form, sondern auf
+der Seinsebene. Wenn Eltern nur die menschliche Dimension zu würdigen wissen, das Sein jedoch
+vernachlässigen, spürt das Kind, dass die Beziehung unerfüllt bleibt, dass etwas absolut
+Entscheidendes fehlt, sodass sich Schmerz in ihm ansammelt und manchmal auch unbewusster Groll
+den Eltern gegenüber. »Warum erkennt ihr mich nicht an?«, scheinen Schmerz und Groll zu rufen.
+Wenn dich jemand anerkennt, macht diese Anerkennung die Dimension des Seins durch euch beide
+deutlicher sichtbar in dieser Welt. Das ist die Liebe, die die Welt erlöst. Ich habe mich zwar bisher
+speziell auf die Beziehung zum Kind bezogen, aber das gilt natürlich für alle Beziehungen
+gleichermaßen.  
+Es heißt, »Gott ist die Liebe«, aber das stimmt nicht ganz. Gott ist das eine Leben in all den
+mannigfachen Lebensformen und jenseits davon. Liebe impliziert Dualismus: Liebende und Geliebte,
+Subjekt und Objekt. Liebe ist also die Erkenntnis des Einsseins in einer dualistischen Welt. Das ist die
+Geburt Gottes in die Welt der Form. Liebe nimmt der Welt etwas von ihrer Weltlichkeit, ihrer Dichte und
+lässt die göttliche Dimension durchscheinen, das Licht des reinen Bewusstseins.  
+
+*Das Rollenspiel aufgeben*  
+In jeder Situation das zu tun, was geboten ist, ohne in eine Rolle zu verfallen und sich mit ihr zu
+identifizieren, ist eine entscheidende Übung für die Kunst des Lebens, die jeder von uns hier lernen
+muss. Du wirst perfekt in etwas, wenn du es um seinetwillen tust, statt dich damit an deine
+Rollenidentität anzupassen, sie zu schützen und zu verstärken. Jede Rolle erzeugt ein fiktives Ichgefühl,
+und durch dieses erdachte »kleine Ich« und die Rolle, die es gerade spielt, wird alles personalisiert,
+korrumpiert und verzerrt. Die meisten Menschen, die auf dieser Welt eine Machtposition innehaben, wie
+Politiker, Fernsehprominente und Führungskräfte aus der Wirtschaft, aber auch religiöse Führer,
+identifizieren sich bis auf ein paar rühmliche Ausnahmen mit ihrer Rolle. Sie mögen zwar als VIPs
+bezeichnet werden, doch im Grunde sind sie nichts weiter als unbewusste Teilnehmer an einem
+Egospiel, einem Spiel, das ungeheuer wichtig wirkt, dem jedoch jeder echte Sinn fehlt. Es ist, um mit
+Shakespeare zu sprechen, »ein Märchen, von einem Narren erzählt, voller Schall und Wut und ohne
+Bedeutung«. 9 Erstaunlicherweise kam Shakespeare zu diesem Schluss, obwohl er die Segnungen des
+Fernsehens noch gar nicht kannte. Wenn das Ego-Erdenschauspiel überhaupt einen Sinn hat, dann
+einen indirekten: Es erzeugt immer mehr Leid auf der Erde, das zwar weitgehend durch das Ego
+verursacht wird, jedoch letztlich auch für dessen Zerstörung sorgt. Es ist das Feuer, in dem sich das Ego
+selbst verzehrt.  
+In einer Welt, in der fast jeder seine Rolle spielt, ragen die wenigen Menschen heraus, die keine
+mentalen Bilder projizieren, sondern die aus einem tieferen Kern ihres Seins heraus agieren, die nicht
+mehr scheinen wollen, als sie sind, sondern einfach nur sie selbst sind - und davon gibt es sogar im
+Fernsehen und in anderen Medien sowie in der Geschäftswelt einige. Sie sind im Grunde die Einzigen,
+auf die es in dieser Welt ankommt. Sie bereiten den Boden für das neue Bewusstsein. Was immer sie
+tun, hat Kraft, weil es auf einer Linie mit dem Sinn des Ganzen ist. Ihr Einfluss reicht allerdings weit über
+das hinaus, was sie tun, er geht weit über ihre Funktion hinaus. Ihre bloße Gegenwart - schlicht,
+natürlich und anspruchslos - hat eine transformatorische Wirkung auf alle, mit denen sie in Kontakt
+kommen.  
+Wenn du keine Rollen spielst, heißt das, dass kein Ich (Ego) hinter dem steckt, was du tust. Dann
+steckt nicht der Schutz oder die Stärkung deines Ichs dahinter. Infolgedessen haben deine Handlungen
+viel mehr Kraft. Du stellst dich vollkommen auf die Situation ein. Du wirst eins mit ihr. Du versuchst nicht,
+jemand Bestimmtes zu sein. Du hast die höchste Macht und Wirkung, wenn du vollkommen du selbst
+bist. Aber bemühe dich nicht darum, du selbst zu sein. Das ist auch wieder eine Rolle, nämlich die des
+»natürlichen, spontanen Ichs«. Sobald du versuchst, dieses oder jenes zu sein, spielst du eine Rolle.
+»Sei einfach du selbst« ist zwar eine gute Empfehlung, aber sie kann auch irreführen. Der Verstand wird
+sich einschalten und sagen: »Mal sehen. Wie kann ich ich selbst sein?« Daraufhin wird er eine Strategie
+entwickeln: »Wie ich ich selbst bleiben kann.« Eine weitere Rolle. »Wie kann ich ich selbst sein?«, ist im
+Grunde die falsche Frage. Sie unterstellt, dass du etwas tun musst, um du selbst zu sein. Aber das Wie
+steht hier nicht zur Debatte, weil du ja schon du bist. Hör einfach auf, dem, was du bist, unnötigerweise
+noch mehr aufzubürden. »Aber ich weiß doch nicht, wer ich bin. Ich weiß nicht, was es heißt, ich selbst
+zu sein.« Wenn du absolut problemlos damit leben kannst, nicht zu wissen, wer du bist, dann bist du das,
+was übrig bleibt - das Sein hinter dem Menschsein, ein Feld purer Möglichkeiten anstelle von etwas, das
+schon definiert ist.  
+Gib es auf, dich dir selbst und anderen gegenüber zu definieren. Du stirbst schon nicht. Vielmehr wirst
+du zum Leben erwachen. Und mach dir nichts daraus, wie andere dich definieren. Indem sie dich
+definieren, schränken sie sich selber ein, und das ist ihr Problem. Erfülle im Umgang mit anderen nicht in
+erster Linie eine Rolle oder Funktion, sondern sei als Bewusstseinsfeld der Präsenz zugegen.
+Warum spielt das Ego seine Rollen? Weil es von einer ungeprüften Annahme ausgeht, von einem
+unbewussten Gedanken. Der lautet: Ich bin nicht ausreichend. Ihm folgen weitere unbewusste
+Gedanken: Ich muss eine Rolle spielen, um zu bekommen, was ich brauche, und voll und ganz ich selbst
+zu sein; ich muss mehr haben, um mehr zu sein. Aber du kannst nicht mehr sein, als du schon bist, denn
+hinter deiner physischen und psychischen Form bist du eins mit dem Leben selbst, bist du eins mit dem
+Sein. In der Form wirst du immer und ewig den einen unterlegen und den anderen überlegen sein. Im
+Sein bist du niemandem unter- oder überlegen. Diese Erkenntnis führt zu wahrer Selbstachtung und
+Demut. Nach Ansicht des Ego schließen sich Selbstachtung und Demut gegenseitig aus. In Wahrheit
+sind sie jedoch ein und dasselbe.  
+
+*Arbeit - mit und ohne Ego*  
+Die meisten Menschen erleben Momente, in denen sie frei vom Ego sind. Diejenigen, die
+außergewöhnlich gut sind in dem, was sie tun, sind möglicherweise bei ihrer Arbeit ganz oder
+weitgehend frei vom Ego. Auch wenn sie es vielleicht gar nicht wissen, ist ihre Arbeit zur spirituellen
+Übung geworden. Häufig sind sie während ihres Schaffens vollkommen präsent, im Privatleben
+hingegen relativ unbewusst. Das heißt, ihr Gegenwärtigsein ist derzeit auf einen bestimmten
+Lebensbereich beschränkt. Ich kenne Lehrer, Künstler, Krankenschwestern, Ärzte, Wissenschaftler,
+Sozialarbeiter, Kellner, Friseusen, Geschäftsinhaber und Handelsvertreter, die ihre Arbeit
+bewundernswert und vollkommen selbstlos ausführen und sich immer auf den jeweiligen Augenblick
+einstellen. Sie sind eins mit dem, was sie tun, eins mit dem Jetzt, eins mit den Menschen oder der
+Aufgabe, der sie dienen. Der Einfluss, den solche Menschen auf andere ausüben, geht weit über ihre
+Funktion hinaus. Sie bewirken bei allen, die mit ihnen in Berührung kommen, eine Ego-Reduzierung.
+Selbst Leute mit starken Egos werden im Umgang mit ihnen manchmal lockerer, gehen aus ihrer
+Deckung heraus und geben ihr Rollenspiel auf. Es dürfte kaum verwunderlich sein, dass Menschen, die
+ohne Ego tätig sind, ungeheuer erfolgreich sind bei dem, was sie tun. Jeder, der eins ist mit dem, was er
+tut, baut mit an einer neuen Erde.  
+Ich kenne aber auch solche, die zwar technisch brillant sind in dem, was sie tun, denen aber ständig
+ihr Ego im Wege steht. Nur ein Teil ihrer Aufmerksamkeit ist bei der Arbeit, die sie gerade verrichten; der
+andere beschäftigt sich mit ihnen selbst. Ihr Ego fordert persönliche Anerkennung, und wenn es davon
+nicht genug bekommt, verschwendet es viel Energie, indem es grollt - und es hat nie genug. »Kommt
+etwa jemand anderem mehr Anerkennung zu als mir?« Oder die Leute konzentrieren sich auf Profit oder
+Macht und verfolgen mit ihrer Arbeit ausschließlich dieses Ziel. Wenn Arbeit nichts weiter als ein Mittel
+zum Zweck ist, kann sie keine hohe Qualität haben. Sobald Schwierigkeiten oder Hindernisse
+auftauchen, zum Beispiel nicht alles ihren Erwartungen gemäß läuft, andere nicht kooperativ und die
+Umstände nicht zweckdienlich sind, stellen sie sich gegen die Situation, statt sofort eins mit ihr zu
+werden und auf die Erfordernisse des gegenwärtigen Augenblicks zu reagieren, und trennen sich so
+davon. Ein Ich ist da, das sich persönlich angegriffen fühlt und ärgert, und eine Riesenmenge Energie
+wird in nutzlosem Protest und fruchtloser Wut verpulvert, Energie, die zur Klärung der Situation
+verwendet werden könnte, wenn sie nicht vom Ego missbraucht würde. Darüber hinaus baut diese
+»Anti«-Energie neue Hindernisse, neue Widerstände auf. Viele Menschen sind tatsächlich selbst ihr
+schlimmster Feind.  
+Viele Menschen sabotieren unwissentlich die eigene Arbeit, indem sie Informationen zurückhalten,
+anderen ihre Hilfe verweigern oder ihnen Steine in den Weg legen, damit sie nicht erfolgreicher werden
+oder höheres Ansehen genießen als sie selbst. Kooperation liegt dem Ego fern, es sei denn, es
+verbindet eigene Absichten damit. Dass alles umso reibungsloser geht und die Dinge einem zufallen, je
+mehr man andere einbezieht, weiß das Ego nicht. Wenn du anderen wenig oder gar keine Hilfe
+zukommen lässt oder ihnen Steine in den Weg legst, lässt das Universum - verkörpert durch Menschen
+und Umstände - auch dir wenig oder gar keine Hilfe zukommen, weil du dich vom Ganzen abgetrennt
+hast. Das unbewusste tiefinnere Gefühl, »nicht genug« zu bekommen, treibt das Ego dazu an, so auf
+den Erfolg anderer zu reagieren, als sei ihm damit etwas genommen worden. Es weiß nicht, dass dein
+Groll über den Erfolg eines anderen Menschen deine eigenen Chancen auf Erfolg mindert. Erfolg winkt
+dir nur, wenn du ihn immer willkommen heißt, wo du ihn auch siehst.  
+
+[...] Jedes Neugeborene trägt bereits einen emotionalen Schmerzkörper in sich. Der ist bei einigen in
+mancher Hinsicht schwerer und fester als bei anderen. Manche Babys sind die meiste Zeit über recht
+fröhlich. Andere scheinen eine enorme Menge unglücklicher Gefühle in sich zu haben. Es ist wahr, dass
+manche Säuglinge viel schreien, weil ihnen nicht genügend Liebe und Aufmerksamkeit
+entgegengebracht wird, aber andere schreien aus keinem ersichtlichen Grund, als versuchten sie, alle
+Menschen in ihrem Umkreis ebenso unglücklich zu machen, wie sie selbst sind, was ihnen oft genug
+auch gelingt. Sie sind mit einem großen Anteil an menschlichem Schmerz auf die Welt gekommen.
+Andere Säuglinge schreien vielleicht häufig, weil sie die negativen Emotionen von Vater oder Mutter
+spüren, die sie schmerzen und die dazu führen, dass ihr Schmerzkörper jetzt schon wächst, weil er
+Energie vom Schmerzkörper der Eltern in sich aufnimmt. Wie die Lage auch sein mag, während der
+physische Körper des Kindes wächst, wächst auch der Schmerzkörper.  
+Ein Kind, dessen Schmerzkörper leicht ist, muss nicht unbedingt im Erwachsenenalter spirituell
+»fortgeschrittener« sein als jemand mit einem starken Schmerzkörper. Tatsächlich ist oft das Gegenteil
+der Fall. Leute mit einem starken Schmerzkörper haben normalerweise eine bessere Chance, spirituell
+zu erwachen, als solche mit einem relativ schwachen. Während einige von ihnen weiterhin in ihrem
+starken Schmerzkörper gefangen bleiben, erreichen viele andere einen Punkt, an dem sie ihr
+Unglücklichsein nicht länger ertragen können, und sind dann stark dazu motiviert, zu erwachen.
+Warum ist der leidende Christus, dessen Gesicht vor Qual verzerrt ist und dessen Körper aus
+zahllosen Wunden blutet, ein so bedeutsames Bild im kollektiven Bewusstsein der Menschheit? Millionen
+Menschen, besonders im Mittelalter, hätten keinen so tiefen Bezug dazu gehabt, wenn es nicht eine
+verwandte Saite in ihnen hätte anklingen lassen und sie darin nicht unbewusst eine äußere Darstellung
+ihrer eigenen inneren Wirklichkeit gesehen hätten - ihres Schmerzkörpers. Sie waren noch nicht so
+bewusst, dass sie es direkt in sich selbst hätten erkennen können, aber es war der Beginn ihrer
+Bewusstwerdung. Christus kann als der archetypische Mensch verstanden werden, der sowohl den
+Schmerz als auch die Möglichkeit der Schmerzüberwindung verkörpert.  
+
+[...] Egal, was du sagst oder tust oder welches Gesicht du der Welt zeigst, dein mental-emotionaler
+Zustand bleibt nicht verborgen. Jeder Mensch strahlt ein Energiefeld aus, das seiner inneren Verfassung
+entspricht und das die meisten Menschen spüren können, wenn auch vielleicht nur unterbewusst. Das
+heißt, sie wissen nicht, dass sie es spüren, doch es bestimmt in hohem Maße, welche Gefühle und
+Reaktionen die betreffende Person bei ihnen auslöst. Manche Leute sind sich seiner jedoch gleich bei
+der ersten Begegnung mit jemandem vollkommen bewusst, noch bevor Worte gewechselt wurden.
+Wenig später bestimmen dann allerdings Worte die Beziehung, und den Worten folgen die Rollen, die
+die meisten Menschen spielen. Jetzt richtet sich das Augenmerk aufs Denken, und sogleich nimmt die
+Fähigkeit, das Energiefeld des anderen zu spüren, stark ab. Unbewusst wird es aber trotzdem noch
+empfunden.  
+Wenn dir klar wird, dass der Schmerzkörper unbewusst auf noch mehr Schmerz aus ist, das heißt,
+sich wünscht, dass etwas Schlimmes passiert, verstehst du auch, dass viele Autounfälle von Fahrern
+oder Fahrerinnen verursacht werden, deren Schmerzkörper zum betreffenden Zeitpunkt aktiviert war.
+Fahren zwei Menschen mit aktivem Schmerzkörper gleichzeitig auf eine Kreuzung zu, ist die
+Wahrscheinlichkeit eines Unfalls um ein Vielfaches höher als unter anderen Umständen. Unbewusst
+wünschen sich beide, dass ein Unfall geschieht. Die Rolle des Schmerzkörpers bei Verkehrsunfällen fällt
+besonders deutlich beim Rowdytum im Verkehr ins Auge, einem Phänomen, bei dem Autofahrer wegen
+irgendwelcher Kleinigkeiten wie etwa der zu großen Langsamkeit des Wagens vor ihnen zu physischer
+Gewalt greifen.  
+Viele Gewalttaten werden von »normalen« Menschen begangen, die sich vorübergehend in
+Wahnsinnige verwandeln. Überall auf der Welt hört man Verteidiger bei Gerichtsverhandlungen sagen:
+»Das ist absolut nicht die Art meines Mandanten«, und Beschuldigte beteuern: »Ich weiß gar nicht, was
+über mich gekommen ist.« Meines Wissens hat aber noch kein Verteidiger zum Richter gesagt, obwohl
+der Tag vielleicht nicht mehr allzu fern ist: »Hier liegt ein Fall von verminderter Zurechnungsfähigkeit vor.
+Der Schmerzkörper meines Mandanten war aktiviert, sodass er nicht wusste, was er tat. Im Grunde war
+er es gar nicht; sein Schmerzkörper hat die Tat begangen.«  
+Heißt das, dass niemand für das verantwortlich ist, was er tut, wenn der Schmerzkörper von ihm Besitz
+ergriffen hat? Meine Antwort lautet: Wie könnte er es sein? Wie kann man verantwortlich gemacht
+werden, wenn man nicht bei Bewusstsein ist, also nicht weiß, was man tut? Im großen Weltenplan ist
+jedoch vorgesehen, dass sich die Menschen zu bewussten Wesen entwickeln, und wer das nicht tut,
+wird unter den Folgen seiner Unbewusstheit leiden müssen. Solche Leute stimmen nicht mit dem
+evolutionären Impetus des Universums überein.  
+Und selbst das ist nur relativ richtig. Aus höherer Sicht ist es nämlich unmöglich, nicht mit der Evolution
+des Universums übereinzustimmen, da selbst die Unbewusstheit und das Leiden, das dadurch entsteht,
+Teil der Evolution sind. Wenn du den Kreislauf des Leidens nicht mehr ertragen kannst, beginnst du zu
+erwachen. Der Schmerzkörper hat also durchaus seinen Platz im großen Ganzen.   
+
+[...] Manche Kinder lernen schon dadurch, dass sie mit sehr unbewussten Eltern zusammen sind,
+unterbewusst etwas über Ego und Schmerzkörper. Eine Frau, deren beide Eltern ein sehr starkes Ego
+und einen starken Schmerzkörper hatten, erzählte mir, dass sie oft, wenn ihre Eltern laut wurden und
+sich anschrien, sie betrachtete und zu sich selbst sagte, obwohl sie sie liebte: »Die sind bescheuert. Wie
+bin ich bloß hierher gekommen?« Sie hatte bereits ein gewisses Bewusstsein davon, wie abartig es ist,
+so zu leben. Diese Bewusstheit trug ein wenig dazu bei, das Maß der Schmerzen, das sie durch ihre
+Eltern in sich aufnahm, zu vermindern.  
+Eltern fragen sich oft, wie sie mit dem Schmerzkörper ihres Kindes umgehen sollen. Dabei lautet die
+entscheidende Frage natürlich, wie sie mit ihrem eigenen umgehen. Erkennen sie ihn in sich selbst?
+Können sie, wenn er aktiviert ist, präsent genug bleiben, um die Emotion auf der Gefühlsebene bewusst
+wahrzunehmen, noch ehe diese die Chance hat, zum Gedanken zu werden und einen »unglücklichen
+Menschen« aus ihnen zu machen?  
+Während das Kind unter einem Schmerzkörperanfall leidet, kannst du nicht viel tun, außer
+gegenwärtig zu bleiben, damit du dich nicht zu einer emotionalen Reaktion hinreißen lässt. Das würde
+nur dem Schmerzkörper des Kindes Nahrung geben. Schmerzkörper können äußerst dramatisch
+auftreten. Fall nicht auf das Drama herein. Nimm es nicht so ernst. Wurde der Schmerzkörper durch
+ungestilltes Verlangen aktiviert, dann unterwirf dich seinen Forderungen keinesfalls. Sonst lernt das Kind
+daraus: »Je unglücklicher ich bin, umso eher bekomme ich, was ich will.« Damit sind Störungen im
+späteren Leben vorprogrammiert. Der Schmerzkörper wird frustriert darüber sein, dass du nicht
+reagierst, macht vielleicht eine Zeit lang ein noch größeres Spektakel und beruhigt sich dann.
+Glücklicherweise sind Schmerzkörperanfälle bei Kindern im Allgemeinen kurzlebiger als bei
+Erwachsenen.  
+Eine Weile, nachdem der Schmerzkörperanfall abgeklungen ist, unter Umständen auch erst am
+nächsten Tag, kannst du mit dem Kind über das Geschehene reden. Erzähl dem Kind aber nichts vom
+Schmerzkörper. Stell ihm lieber Fragen. Zum Beispiel: »Was ist eigentlich gestern über dich gekommen,
+als du gar nicht mehr aufhören wolltest mit Schreien? Erinnerst du dich noch? Wie hat es sich angefühlt?
+War es ein schönes Gefühl? Das, was da über dich gekommen ist, hat es einen Namen? Nein? Wenn es
+einen Namen hätte, wie würde es dann heißen? Wenn du es sehen könntest, wie würde es aussehen?
+Kannst du ein Bild davon malen, wie es aussieht? Was ist mit ihm geschehen, als es verschwunden ist?
+Ist es eingeschlafen? Glaubst du, es kommt wieder?«  
+Das sind nur ein paar Vorschläge, was du fragen könntest. Alle diese Fragen sollen das
+Beobachtungsvermögen des Kindes schärfen, seine Präsenz. Sie helfen dem Kind, sich von der
+Identifikation mit dem Schmerzkörper zu befreien. Vielleicht willst du dem Kind auch in seiner
+Ausdrucksweise von deinem eigenen Schmerzkörper erzählen. Wird das Kind wieder einmal vom
+Schmerzkörper überwältigt, kannst du sagen: »Er ist wieder da, stimmt’s?« Benutze die gleichen Worte
+wie das Kind, als es davon sprach. Lenke die Aufmerksamkeit des Kindes darauf, wie es sich anfühlt.
+Zeig lieber Interesse oder Neugier, als zu kritisieren oder zu verurteilen.  
+Es ist unwahrscheinlich, dass der Schmerzkörper dadurch auf der Stelle kollabiert, und es mag auch
+so scheinen, als hörte das Kind dir gar nicht zu, aber trotzdem bleibt dadurch etwas Bewusstheit im
+Hintergrund des kindlichen Bewusstseins bestehen, auch während der Schmerzkörper noch aktiv ist.
+Nach einigen Malen ist diese Bewusstheit gewachsen und der Schmerzkörper schwächer geworden.
+Das Kind gewinnt an Präsenz. Wie du merken wirst, wird dich eines Tages dein Kind darauf aufmerksam
+machen, dass dein Schmerzkörper von dir Besitz ergriffen hat.
+
+*Die Herabsetzung des Ego zulassen*  
+Das Ego ist stets auf der Hut vor allem, was es als Herabsetzung empfindet. In diesem Fall springen
+automatisch Reparaturmechanismen an, um die mentale Form des Ego wiederherzustellen. Wenn dich
+jemand tadelt oder kritisiert, empfindet das Ego dies als persönliche Kränkung und versucht sein
+angeschlagenes Selbstwertgefühl sofort durch Rechtfertigung, Verteidigung oder Schuldzuweisungen
+wieder zu reparieren. Ob die andere Person Recht hat oder nicht, ist für das Ego irrelevant. Es ist viel
+stärker an seiner Selbsterhaltung interessiert als an der Wahrheit. Damit wird für den Erhalt der
+psychologischen Form deines Ichs gesorgt. Selbst etwas so Normales wie zurückzubrüllen, wenn dich
+ein Autofahrer im Verkehr einen Idioten nennt, ist eine automatische, unbewusste Reaktion zur
+Wiederherstellung des Ego. Einer der häufigsten Reparaturmechanismen des Ego ist Wut, die eine
+kurzzeitige, aber ungeheure Egoaufblähung bewirkt. Für das Ego haben alle Reparaturmaßnahmen
+ihren Sinn, obwohl sie im Grunde zu seiner Gestörtheit beitragen. Am deutlichsten gesteigert wird die
+Gestörtheit durch physische Gewalt und Selbsttäuschung in Form von überspannten Fantasien.  
+Eine besonders kraftvolle spirituelle Übung besteht darin, die Herabsetzung des Ego zuzulassen,
+wenn sie geschieht, ohne etwas dagegen zu unternehmen. Ich empfehle dir, von Zeit zu Zeit damit zu
+experimentieren. Wenn dich zum Beispiel jemand kritisiert, tadelt oder beschimpft, tust du einfach gar
+nichts, statt sofort all deine Abwehrmechanismen zu mobilisieren und auf Rache zu sinnen. Lass es zu,
+dass dein Selbstbild schrumpft, und achte darauf, wie sich das in deinem tiefsten Innern anfühlt. Ein paar
+Sekunden lang wird es dir unangenehm sein, so, als wärst du kleiner geworden. Dann aber spürst du
+eine innere Weite, die du lebhaft empfindest. Du bist überhaupt nicht kleiner geworden. In Wahrheit hast
+du dich ausgedehnt! Jetzt machst du vielleicht eine erstaunliche Entdeckung: Wenn du in irgendeiner
+Weise herabgesetzt wirst und absolut nicht darauf reagierst - nicht nur äußerlich, sondern auch innerlich
+-, geht dir auf, dass nichts Wirkliches davon berührt wurde und du eigentlich durch das
+»Erniedrigtwerden« gewachsen bist. Sobald du die Form, das Ego, nicht mehr verteidigst oder zu
+stärken versuchst, löst du dich von der Identifikation mit dieser Form, dem mentalen Selbstbild. Indem du
+weniger wirst (in den Augen des Ego), dehnst du dich in Wahrheit aus und schaffst einen Raum, in dem
+das Sein erscheinen kann. Dann kann deine wahre Kraft, das, was du jenseits der Form bist, durch die
+scheinbar geschwächte Form hindurchleuchten. Das meinte Jesus, als er sagte, man solle »sich selbst
+verleugnen« oder »auch die andere Backe darbieten«.  
+Das heißt natürlich nicht, dass du dich unbewussten Menschen opfern oder dich von ihnen ausnutzen
+lassen sollst. Manchmal erfordert es eine Situation, dass man jemanden deutlich zurückweist. Wird dabei
+nicht das Ego verteidigt, zeigen die Worte Wirkung, ohne bloß Gegenreaktion zu sein. Falls nötig, kannst
+du jemandem auch mit aller Bestimmtheit ein klares »Nein« sagen, und das wird ein »Nein von hoher
+Qualität« sein, wie ich es nenne, ein von aller Negativität freies Nein.  
+Wenn du dich damit zufrieden gibst, niemand Besonderer zu sein, dich also nicht hervortust, richtest
+du dich auf die Kraft des Universums aus. Was dem Ego wie Schwäche vorkommt, ist in Wirklichkeit die
+einzig wahre Stärke. Diese spirituelle Wahrheit ist den Werten unserer heutigen Kultur und der Art und
+Weise, wie sie das Verhalten der Menschen konditioniert, diametral entgegengesetzt.  
+Das alte Tao Te King lehrt, man solle, statt ein Berg sein zu wollen, lieber »das Tal des Universums«
+sein.16 Auf diese Weise wird deine Ganzheit wiederhergestellt, und »alle Dinge werden zu dir kommen«.
+Ähnliches sagt Jesus in einem seiner Gleichnisse: »Wenn du eingeladen bist, so geh hin und setz dich
+untenan, damit, wenn der kommt, der dich eingeladen hat, er zu dir sagt: Freund, rücke hinauf! Dann
+wirst du Ehre haben vor allen, die mit dir zu Tisch sitzen. Denn wer sich selbst erhöht, der soll erniedrigt
+werden; und wer sich selbst erniedrigt, der soll erhöht werden.«  
+Ein weiterer Zweck dieser Übung ist es, das Ego nicht länger durch Angeberei oder das Verlangen zu
+stärken, sich herauszustreichen, als etwas Besonderes zu gelten, Eindruck zu schinden oder
+Aufmerksamkeit zu errregen. Dazu mag bisweilen auch gehören, mit der eigenen Meinung
+zurückzuhalten, während alle anderen sagen, was sie denken, und zu beobachten, was für ein Gefühl
+das ist.  
+
+[...] Wenn du dich nicht länger total mit der Form identifizierst, wird das Bewusstsein, das du bist, aus
+seiner Gefangenschaft in der Form befreit. Diese Freiheit schafft den inneren Raum. Er manifestiert sich
+als Stille, als subtiler Friede tief in deinem Innern, selbst angesichts widriger Umstände. Auch dies geht
+vorbei. Plötzlich entsteht Raum rings um ein Ereignis. Auch emotionale Höhen und Tiefen oder gar
+Schmerzen bekommen Raum. Vor allem aber liegt Raum zwischen den Gedanken. Und dieser Raum
+strahlt einen Frieden aus, der »nicht von dieser Welt« ist, denn die Welt ist Form, und der Friede ist
+Raum. Das ist der Friede Gottes.  
+Jetzt kannst du dich an den Dingen dieser Welt erfreuen und sie würdigen, ohne ihnen eine
+Wichtigkeit und Bedeutung beizumessen, die sie nicht haben. Du kannst dich endlich in den Tanz der
+Schöpfung einreihen und aktiv werden, ohne dich an Ergebnisse zu klammern und so unvernünftige
+Forderungen an die Welt zu stellen wie: Gib mir Erfüllung, mach mich glücklich, schenk mir Sicherheit,
+sag mir, wer ich bin. Dies kann die Welt dir nicht geben, aber wenn du solche Erwartungen nicht mehr
+hegst, hat alles selbst verursachte Leid ein Ende. Alles Leiden entsteht durch eine Überbewertung der
+Form und Blindheit gegenüber der Dimension des inneren Raums. Sobald sich dir diese Dimension im
+Leben eröffnet, kannst du dich an Dingen, Erfahrungen und Sinnesgenüssen erfreuen, ohne dich an sie
+zu verlieren und ohne dich innerlich an sie zu klammern, das heißt, ohne süchtig zu werden nach der
+Welt.  
+Die Worte Auch dies geht vorbei deuten auf die Wirklichkeit hin. Mit dem Hinweis auf die
+Unbeständigkeit aller Formen verweisen sie praktisch auf das Ewige. Nur das Ewige in uns lässt das
+Vergängliche als vergänglich erkennen.  
+Wenn die Dimension des Raums verloren gegangen ist oder nicht mehr erkannt wird, maßen sich die
+Dinge der Welt eine absolute Wichtigkeit an, einen Ernst und eine Schwere, die sie in Wahrheit gar nicht
+haben. Wenn die Welt nicht aus der Perspektive des Formlosen betrachtet wird, wird sie bedrohlich und
+letzten Endes zu einem Ort der Verzweiflung. Das muss der alttestamentarische Prophet gespürt haben,
+als er schrieb: »Ich sah an alles Tun … und siehe, es war alles eitel und Haschen nach Wind.«  
+
+*Wahrnehmen ohne zu benennen*  
+Die meisten Menschen sind sich nur beiläufig ihrer Umwelt bewusst, besonders, wenn ihre Umgebung
+ihnen vertraut ist. Die Stimme in ihrem Kopf nimmt den größten Teil ihrer Aufmerksamkeit in Anspruch.
+Manche Leute fühlen sich lebendiger, wenn sie unbekannte Orte oder fremde Länder bereisen, denn
+dabei beanspruchen Sinneswahrnehmungen - Erfahrungen - mehr von ihrem Bewusstsein als das
+Denken. Dann sind sie präsenter. Manche sind jedoch selbst dann noch vollkommen der Stimme in
+ihrem Kopf ausgeliefert. Ihre Wahrnehmungen und Erfahrungen werden durch sofortige Bewertung
+verzerrt. Sie sind eigentlich gar nicht unterwegs. Nur ihr Körper reist, während sie selber da bleiben, wo
+sie immer waren: im Kopf.  
+So sieht die Wirklichkeit der meisten Menschen aus: Sobald etwas wahrgenommen wird, wird es vom
+Phantomselbst, dem Ego, benannt, interpretiert, mit etwas anderem verglichen, geschätzt, verabscheut
+und als gut oder schlecht bewertet. Die Leute sind in Gedankenformen, im Objektbewusstsein gefangen.
+Du kannst erst spirituell erwachen, wenn das zwanghafte, unbewusste Benennen abklingt oder du dir
+seiner zumindest bewusst wirst, sodass du es beobachten kannst, während es geschieht. Es ist dieses
+ständige Benennen, das dem Ego als dem unbeobachteten Denken seinen Platz sichert. Sobald es
+jedoch nachlässt oder du dir wenigstens seiner bewusst wirst, entsteht innerer Raum, und dann bist du
+nicht länger Sklave deines Denkens.  
+Nimm einmal einen Gegenstand zur Hand - zum Beispiel einen Stift, einen Stuhl, eine Tasse, eine
+Pflanze - und erkunde ihn mit deinen Augen, das heißt, schau ihn dir voller Interesse, ja mit einer
+gewissen Neugier an. Wähle möglichst kein Objekt mit einem starken persönlichen Bezug, der dich an
+die Vergangenheit erinnert, etwa daran, wo du es gekauft hast oder wer es dir geschenkt hat usw.
+Vermeide auch Dinge, die beschriftet sind, wie Bücher oder Flaschen. Sie würden zum Denken anregen.
+Sei entspannt, aber wachsam, ohne dich anzustrengen, und richte deine gesammelte Aufmerksamkeit
+auf den Gegenstand, auf jedes Detail. Falls Gedanken in dir aufsteigen, lass dich nicht auf sie ein. Du
+bist nicht an den Gedanken interessiert, sondern an der reinen Wahrnehmung. Kannst du etwas
+wahrnehmen, ohne zu denken? Kannst du etwas sehen, ohne dass die Stimme in deinem Kopf es
+kommentiert, Schlüsse zieht, vergleicht oder etwas zu erklären versucht? Lass deinen Blick nach einigen
+Minuten durch das Zimmer oder den Ort schweifen, in dem du dich gerade befindest, und lass deine
+wache Aufmerksamkeit jeden Gegenstand erhellen, auf dem sie ruht.  
+Horch nun auf einzelne Geräusche, die vielleicht da sind. Lausche auf sie genau so, wie du die Dinge
+in deiner Umgebung betrachtet hast. Manche Geräusche sind wahrscheinlich natürlich - Wasser, Wind,
+Vögel -, während andere künstlich erzeugt werden. Einige sind angenehm, andere unangenehm.
+Unterscheide aber nicht zwischen gut und schlecht. Lass jedes Geräusch so sein, wie es ist, ohne es zu
+interpretieren. Auch hierbei ist entspannte, aber wache Aufmerksamkeit entscheidend.
+Wenn du in dieser Art siehst und hörst, wirst du dir unter Umständen eines zarten, zuerst vielleicht
+kaum wahrnehmbaren Gefühls der Ruhe bewusst. Manche Leute empfinden es als Stille im Hintergrund.
+Andere nennen es Frieden. Sobald das Bewusstsein nicht mehr total vom Denken eingenommen ist,
+bleibt ein Teil von ihm in seinem formlosen, unkonditionierten ursprünglichen Zustand erhalten. Das ist
+der innere Raum.  
+
+*Das Bewusstsein für den inneren Körper*  
+Eine weitere einfache, aber hoch wirksame Methode, den Raum in diesem Leben zu entdecken, ist eng
+mit dem Atem verbunden. Während du aufmerksam dem sanften Luftstrom folgst, der in deinen Körper
+ein- und wieder ausströmt, und fühlst, wie sich Brust und Bauch entsprechend heben und senken, wirst
+du dir auch deines inneren Körpers bewusst. Dann kannst du deine Aufmerksamkeit vom Atem auf die
+Lebendigkeit richten, die du innerlich spürst und die deinen ganzen Körper durchdringt.  
+Die meisten Leute lassen sich so sehr von ihren Gedanken zerstreuen und identifizieren sich so stark
+mit der Stimme in ihrem Kopf, dass sie die Lebendigkeit in ihrem Innern gar nicht mehr spüren können.
+Das Leben, das den physischen Körper beseelt, das Leben, das du selber bist, nicht mehr spüren zu
+können ist der schlimmste Verlust, der dich treffen kann. Dann beginnst du nicht nur, nach Ersatz für das
+natürliche Wohlbefinden im Innern zu suchen, sondern auch nach etwas, womit sich das ständige
+Unbehagen überdecken lässt, das sich einstellt, wenn du nicht mit der inneren Lebendigkeit in
+Berührung bist, die zwar immer da ist, meist jedoch übersehen wird. So suchen die Leute unter anderem
+Ersatz in einem Drogenrausch, in einer Überreizung der Sinne, zum Beispiel durch dröhnend laute
+Musik, in prickelnder Spannung, gefahrvollen Aktivitäten oder zwanghaftem Sex. Selbst
+Beziehungsdramen werden als Ersatz für das echte Gefühl der Lebendigkeit benutzt.  
+Der beliebteste Ausweg aus dem latent vorhandenen Unbehagen ist die Suche nach einer intimen
+Beziehung: nach einem Mann oder einer Frau, die »mich glücklich machen« wird. Das ist natürlich auch
+eine der häufigsten Enttäuschungen. Und wenn das Unbehagen wieder da ist, geben die Leute
+normalerweise ihrem Partner bzw. ihrer Partnerin die Schuld daran.  
+Atme zwei- oder dreimal bewusst ein und aus. Sieh jetzt, ob du ein feines Gefühl von Lebendigkeit
+wahrnehmen kannst, das deinen ganzen inneren Körper erfüllt. Kannst du deinen Körper sozusagen von
+innen fühlen? Spüre einen Augenblick lang bestimmte Körperteile. Spüre deine Hände, dann die Arme,
+die Füße, die Beine. Kannst du Bauch, Brust, Hals und Kopf spüren? Wie steht es mit deinen Lippen? Ist
+Leben in ihnen? Mach dir nun noch einmal den inneren Körper als Ganzes bewusst. Anfangs wirst du bei
+dieser Übung vielleicht die Augen schließen wollen; öffne sie aber, sobald du deinen inneren Körper
+spürst, und dann schau umher und fühle ihn dabei weiterhin. Manche Leser werden es nicht für nötig
+halten, die Augen zu schließen, denn sie können ihren inneren Körper spüren, während sie dies lesen.  
+
+*Sich selbst verlieren, um sich zu finden*  
+Der innere Raum entsteht auch dann, wenn du dem Bedürfnis widerstehst, dein formales Selbst (deine
+Person) zu betonen. Dieses Bedürfnis kommt vom Ego. Es ist kein echtes Bedürfnis. Wir haben diesen
+Punkt schon kurz berührt. Immer wenn du eines dieser Verhaltensmuster aufgibst, entsteht innerer
+Raum. Du wirst wahrhaftiger du selbst. Für das Ego sieht es so aus, als würdest du dich verlieren, dabei
+ist das Gegenteil richtig. Jesus sagte schon, dass man sich selbst verlieren muss, um sich zu finden.
+Immer wenn du eines dieser Muster fallen lässt, wird das, was dich auf der Ebene der Form ausmacht,
+schwächer, und dann kommt das deutlicher zum Vorschein, was du jenseits der Form bist. Du wirst
+weniger und doch mehr.  
+Hier einige Beispiele, wie Menschen sich unbewusst in ihrem formalen Selbst zu bestärken versuchen.
+Wenn du sehr wachsam bist, kannst du vielleicht einige dieser unbewussten Verhaltensmuster in dir
+selbst aufspüren: dass du Anerkennung verlangst für etwas, das du getan hast, und verstimmt oder
+wütend bist, wenn sie dir versagt wird; dass du versuchst, Aufmerksamkeit zu erregen, indem du ständig
+über deine Probleme sprichst, deine Krankengeschichte zum Besten gibst oder jemandem eine Szene
+machst; dass du ungefragt deine Meinung äußerst, ohne damit etwas an der Situation zu verändern;
+dass du in erster Linie darum besorgt bist, wie andere Personen dich sehen, sie also zur
+Selbstbespiegelung oder Selbstbestätigung benutzt; dass du mit deinem Besitz, Wissen, guten
+Aussehen, Status, deiner körperlichen Kraft usw. Eindruck auf andere machen willst; dass du durch eine
+wütende Reaktion auf etwas oder jemanden dein Ego kurzfristig aufblähst; dass du Dinge persönlich
+nimmst und beleidigt bist; dass du Recht haben und andere ins Unrecht setzen willst, indem du dich im
+Stillen oder laut beklagst; dass du auffallen oder bedeutend erscheinen willst.
+Sobald du ein solches Muster in dir aufgespürt hast, solltest du ein Experiment durchführen. Finde
+heraus, wie es sich anfühlt und was geschieht, wenn du dieses Muster fallen lässt. Lass es einfach
+fallen und sieh, was geschieht.  
+Dich auf der Ebene der Form zurückzunehmen ist eine weitere Methode, Bewusstheit zu erlangen.
+Entdecke die gewaltige Kraft, die durch dich in die Welt strömt, wenn du dein formales Selbst nicht mehr
+betonst.  
+
+*Stille*  
+Es heißt: »Stille ist die Sprache Gottes, und alles andere ist eine schlechte Übersetzung.« Stille ist in
+Wahrheit ein anderes Wort für Raum. Uns der Stille bewusst zu werden, sobald wir ihr im Leben
+begegnen, verbindet uns mit der formlosen und zeitlosen Dimension in uns, die jenseits des Denkens
+liegt, jenseits des Ego. Das kann die Stille sein, die in der Natur herrscht, die Stille in deinem Zimmer in
+der Morgenfrühe oder die Stille zwischen den Geräuschen. Stille hat keine Form, darum können wir sie
+nicht durch Denken wahrnehmen. Denken ist Form. Sich der Stille bewusst zu werden bedeutet, still zu
+sein. Stillsein ist Gewahrsein ohne Denken. Du bist nie tiefer und essenzieller du selbst als dann, wenn
+du still bist. In der Stille bist du, wie du warst, bevor du für eine gewisse Zeit diese physische und
+mentale Form angenommen hast, die »Person« genannt wird. Dann bist du auch so, wie du sein wirst,
+wenn sich die Form wieder auflöst. In deiner Stille bist du das, was du jenseits deiner zeitlichen Existenz
+bist: reines Bewusstsein - unkonditioniert, formlos und ewig.  
+
+[...] Was genau meinst du mit »Sich-in-etwas-verlieren«?  
+Du bist deinem Wesen nach Bewusstsein. Wenn sich das Bewusstsein (du) vollkommen mit dem
+Denken identifiziert und so seine wahre Natur vergisst, verliert es sich im Denken. Wenn es sich mit
+mental-emotionalen Mustern wie Begehren und Fürchten identifiziert - den Urtriebkräften des Ego -,
+verliert es sich in diesen Mustern. Außerdem geht das Bewusstsein verloren, wenn es sich nur mit dem
+Handeln identifiziert und mit den Reaktionen auf das, was geschieht. Jeder Gedanke, jedes Begehren
+oder Befürchten, jede Aktion oder Reaktion ist dann von dem falschen Gefühl eines Selbst erfüllt, das
+nicht dazu fähig ist, die einfache Freude des Seins zu spüren, und deshalb ersatzweise zu Lust oder
+manchmal auch zu Leid Zuflucht nimmt. Das ist ein Leben in Seinsvergessenheit. In diesem Zustand, in
+dem du vergessen hast, wer du bist, ist jeder Erfolg nichts weiter als ein flüchtiger Wahn. Was immer du
+auch erreichst, du wirst bald wieder unglücklich sein, oder deine Aufmerksamkeit wird voll und ganz von
+einem neuen Problem, einem neuen Dilemma in Anspruch genommen.  
+
+[...] Die Kraft hinter dem Verlangen des Ego schafft »Feinde«, das heißt eine Reaktion in Form einer
+Gegenkraft von gleicher Intensität. Je stärker das Ego ist, umso stärker ist das Gefühl der Getrenntheit
+zwischen den Menschen. Die einzigen Handlungen, die keine Gegenreaktion herausfordern, sind solche,
+die dem Wohl aller dienen. Sie beziehen ein, statt auszugrenzen. Sie verbinden, statt zu trennen. Sie
+dienen nicht »meinem« Land, sondern der ganzen Menschheit, nicht »meiner« Religion, sondern der
+Entfaltung des Bewusstseins aller Menschen, nicht »meiner« Spezies, sondern allen fühlenden Wesen
+und der ganzen Natur.  
+Wir lernen auch, dass Handeln zwar notwendig, aber nur von zweitrangiger Bedeutung für die
+Manifestation unserer äußeren Wirklichkeit ist. Der entscheidende Faktor für die Schöpfung ist das
+Bewusstsein. Mögen wir auch noch so aktiv sein und uns noch so sehr anstrengen, unser
+Bewusstseinszustand erschafft unsere Welt, und solange sich keine Veränderung auf dieser inneren
+Ebene vollzieht, wird alles Handeln nichts Neues bewirken. Wir würden dabei die Welt nur in einer etwas
+abgewandelten Form immer wieder gleich erschaffen, eine Welt, die ein äußeres Spiegelbild des Ego ist.  
+
+*Die drei Modalitäten des erwachten Handelns*  
+Es gibt drei Arten, wie das Bewusstsein in das einfließen kann, was du tust, und dadurch in die Welt, drei
+Modalitäten, durch die du dein Leben auf die kreative Kraft des Universums ausrichten kannst. Unter
+Modalität ist die zugrunde liegende Energiefrequenz zu verstehen, die in das eingeht, was du tust, und
+dein Handeln mit dem erleuchteten Bewusstsein verbindet, das sich in dieser Welt entfaltet. Was du tust,
+wird so lange funktionsgestört und egohaft sein, wie es nicht diesen drei Modalitäten entspricht. Sie
+können sich im Laufe eines Tages verändern, aber es kann auch sein, dass eine von ihnen während
+eines bestimmten Lebensabschnitts dominiert. Jede Modalität ist gewissen Situationen angemessen.  
+Die Modalitäten erwachten Handelns sind Bereitwilligkeit, Freude und Enthusiasmus. Jede von ihnen
+verkörpert eine bestimmte Schwingungsfrequenz des Bewusstseins. Du musst achtsam sein, um
+sicherzugehen, dass eine von ihnen in alles einfließt, was du tust, ob es sich um höchst einfache oder
+höchst komplexe Aufgaben handelt. Wenn du weder mit Bereitwilligkeit noch mit Freude, noch mit
+Enthusiasmus bei dem bist, was du tust, solltest du einmal genau hinschauen, dann wirst du sehen, dass
+du dir und anderen Leid bescherst.  
+
+[...] Das Ego verlangt stets danach, von Menschen oder Dingen etwas zu bekommen; der
+Enthusiasmus gibt von seiner eigenen Fülle ab. Wenn der Enthusiasmus auf Hindernisse in Form von
+unangenehmen Situationen oder unkooperativen Menschen trifft, geht er nie zum Angriff über, sondern
+umgeht die Unannehmlichkeiten oder macht aus dem Feind einen Freund, indem er die gegen ihn
+gerichtete Energie achtet oder in sich aufnimmt und so in etwas umwandelt, das ihm hilft.
+Enthusiasmus und Ego können nicht nebeneinander bestehen. Das eine setzt die Abwesenheit des
+anderen voraus. Der Enthusiasmus kennt sein Ziel, ist jedoch zugleich vollkommen eins mit dem
+gegenwärtigen Augenblick, der Quelle seiner Lebendigkeit, Freude und Macht. Enthusiasmus »verlangt«
+nichts, weil ihm nichts fehlt. Er ist eins mit dem Leben, und deshalb verlierst du dich nicht im Handeln,
+mag das durch ihn beflügelte Tun auch noch so viel Schwung haben. Immer bleibt ein stiller, aber höchst
+lebendiger Raum in der Mitte des Rades, ein Raum des Friedens inmitten aller Aktivitäten, aus dem alles
+entspringt und der zugleich unberührt von allem bleibt.  
+Mit Enthusiasmus bringst du dich vollkommen in Einklang mit dem nach außen gerichteten
+schöpferischen Prinzip des Universums, allerdings ohne dich mit seinen Werken zu identifizieren, das
+heißt, ohne Ego. Wo keine Identifikation stattfindet, gibt es auch kein Anhaften - eine der Hauptursachen
+für das Leiden. Sobald die Woge schöpferischer Energie verebbt ist, nimmt die strukturelle Spannung
+wieder ab, aber die Freude am Tun bleibt. Niemand kann immerfort enthusiastisch sein. Vielleicht
+durchströmt dich später erneut eine Welle kreativer Energie, und dann lebt dein Enthusiasmus wieder
+auf.  
+Wenn die Rückkehrbewegung in Richtung Auflösung der Form einsetzt, ist dir der Enthusiasmus nicht
+mehr von Nutzen. Er gehört zur nach außen gerichteten Phase des Zyklus. Nur durch Hingabe kannst du
+dich auf die Rückkehrbewegung einstimmen - die Heimreise.
+Fassen wir einmal zusammen: Aus der Freude an dem, was du tust, wird in Verbindung mit einer Vision
+oder einem höheren Ziel Enthusiasmus. Doch obwohl du ein höheres Ziel hast, muss das, was im
+gegenwärtigen Augenblick geschieht, weiterhin im Mittelpunkt deiner Aufmerksamkeit stehen; sonst bist
+du nicht mehr im Einklang mit dem universellen Ziel. Pass auf, dass deine Vision oder dein hohes Ziel
+kein übersteigertes Bild von dir selbst enthält und somit eine versteckte Form des Ego ist - etwa, dass du
+unbedingt ein Filmstar, ein berühmter Schriftsteller oder ein reicher Unternehmer werden willst. Hüte dich
+auch davor, das Habenwollen zu deinem Ziel zu erheben und eine Villa am Meer, eine eigene Firma oder
+zehn Millionen Dollar auf dem Bankkonto zu erstreben. Ein gesteigertes Selbstbild oder die Vision,
+einmal dieses und jenes zu haben, sind statische Ziele, die dir keine Kraft verleihen. Achte lieber darauf,
+dass deine Ziele dynamisch sind, das heißt eine Aktivität umfassen, in der du dich engagierst und durch
+die du sowohl mit anderen Menschen als auch mit dem Ganzen verbunden bist. Statt dich selbst als
+berühmten Schauspieler oder Schriftsteller usw. zu sehen, solltest du dich als jemanden sehen, der
+durch seine Arbeit eine Vielzahl von Menschen inspiriert und deren Leben bereichert. Spüre, wie dein
+Tun nicht nur dein eigenes Leben bereichert und vertieft, sondern auch das unzähliger anderer.
+Empfinde dich selbst als Öffnung, durch die Energie aus der unmanifestierten Quelle allen Lebens zum
+Wohl aller durch dich hindurchfließt.  
+Das alles setzt voraus, dass dein Ziel oder deine Vision in deinem Innern, auf der mentalen und
+emotionalen Ebene, bereits Realität ist. Enthusiasmus ist die Kraft, die den mentalen Entwurf in die
+physische Dimension überträgt. Das ist kreativer Gebrauch des Denkens, und darum ist kein Verlangen
+dabei. Du kannst nicht manifestieren, was du willst; du kannst nur manifestieren, was bereits in dir ist.
+Durch harte Arbeit und große Anstrengung wirst du vielleicht erreichen, was du willst, aber das ist nicht
+der Weg der neuen Erde. Jesus hat uns den Schlüssel zum kreativen Gebrauch unseres Denkens und
+zur bewussten Manifestation der Form gegeben, als er sagte: »Und alles, was ihr bittet im Gebet, wenn
+ihr glaubt, so werdet ihr’s empfangen.«  

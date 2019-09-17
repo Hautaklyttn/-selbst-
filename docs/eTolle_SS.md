@@ -478,8 +478,8 @@ Emotionen und Triebkräfte.
 Sobald du erkennst, dass eine nie verstummende Stimme
 in deinem Kopf vorgibt, du zu sein, erwachst du aus deiner
 unbewussten Identifikation mit dem Gedankenstrom. Wenn du
-die Stimme bemerkst, wird dir klar, dass du nicht diese Stimme
-- der Denker - bist, sondern der, dem sie bewusst ist.  
+die Stimme bemerkst, wird dir klar, dass du nicht diese Stimme -
+der Denker - bist, sondern der, dem sie bewusst ist.  
 Sich selbst als das Bewusstsein hinter der Stimme zu
 erkennen ist Freiheit.  
 
@@ -638,5 +638,182 @@ erklären.
 &nbsp;
 
 **Das Jetzt**  
+
+&nbsp;
+
+>Bei oberflächlicher Betrachtung scheint es, als sei der
+gegenwärtige Augenblick nur einer von vielen, vielen
+Augenblicken. Jeder Tag des Lebens scheint aus Tausenden
+von Augenblicken zu bestehen, in denen Verschiedenes
+geschieht. Doch ist nicht, wenn du tiefer blickst, immer nur ein
+einziger Augenblick da? Ist das Leben nicht immer nur »dieser
+eine Augenblick«?  
+Dieser eine Augenblick - das Jetzt - ist das Einzige, dem
+du nicht entrinnen kannst, die einzige Konstante im Leben.
+Was auch geschehen mag, wie sehr sich das Leben auch
+verändert, eins ist gewiss: Es ist immer jetzt.  
+Da es keine Möglichkeit gibt, dem Jetzt zu entrinnen,
+warum heißt du es dann nicht willkommen und freundest dich
+mit ihm an?  
+
+&nbsp;
+
+>Wenn du dich mit dem gegenwärtigen Augenblick anfreundest,
+fühlst du dich zu Hause, wo immer du bist. Wer sich
+nicht im Jetzt zu Hause fühlt, wird sein Unbehagen immer mit
+sich herumtragen, wohin er auch gehen mag.  
+
+&nbsp;
+
+>Der gegenwärtige Augenblick ist, wie er ist. Immer. Kannst
+du ihn zulassen?  
+
+&nbsp;
+
+>Die Unterteilung des Lebens in Vergangenheit, Gegenwart
+und Zukunft ist erdacht und letztlich eine Illusion.
+Vergangenheit und Zukunft sind Gedankenformen, mentale
+Abstraktionen. Die Vergangenheit kommt nur im Jetzt in
+Erinnerung. Woran du dich erinnerst, ist ein Ereignis, das im
+Jetzt stattfand, und daran erinnerst du dich jetzt. Wenn die
+Zukunft eintritt, ist sie die Gegenwart des Jetzt. Das Einzige
+also, was wirklich ist, was je da ist, ist das Jetzt.  
+
+&nbsp;
+
+>Seine Aufmerksamkeit auf das Jetzt zu richten bedeutet nicht,
+das zu verleugnen, was im Leben nötig ist. Es bedeutet, das zu
+erkennen, was vordringlich ist. Danach kannst du mit dem, was
+zweitrangig ist, leicht fertig werden. Das heißt nicht: »Ich
+kümmere mich um nichts mehr, weil es nur das Jetzt gibt.«
+Nein. Zuerst fasst du das ins Auge, was vordringlich ist, und
+freundest dich mit dem Jetzt an, statt es dir zum Feind zu
+machen. Du erkennst es an und weißt es zu würdigen. Wenn
+das Jetzt zum Fundament und Brennpunkt deines Lebens wird,
+entfaltet sich dein Leben ungestört.  
+
+&nbsp;
+
+>Geschirr abwaschen, eine Unternehmensstrategie entwerfen,
+eine Reise planen - was ist wichtiger: die Tätigkeit oder das
+Ergebnis, das du mit dieser Tätigkeit erzielen willst? Dieser
+gegenwärtige Augenblick oder irgendein Moment in der
+Zukunft?  
+Gehst du mit diesem Augenblick so um, als wäre er ein
+Hindernis, das du überwinden musst? Hast du das Gefühl, dass
+ein zukünftiger Augenblick vor dir liegt, der wichtiger ist?
+Fast jeder lebt die meiste Zeit über so. Da die Zukunft nie
+anbricht, außer in der Gegenwart, ist das eine ungesunde Art zu
+leben. Sie erzeugt ein dauerndes unterschwelliges Unbehagen,
+Spannungen und Unzufriedenheit. Sie würdigt das Leben nicht,
+das sich aus schließlich jetzt vollzieht, nicht vorher und nicht
+nachher, sondern jetzt.  
+
+&nbsp;
+
+>Spüre die Lebendigkeit in deinem Körper. Das verankert dich
+im Jetzt.  
+
+&nbsp;
+
+>Im Grunde übernimmst du erst dann die Verantwortung für
+dein Leben, wenn du die Verantwortung für diesen Augenblick
+trägst - jetzt. Das liegt daran, dass das Jetzt der einzige Ort ist,
+an dem es Leben gibt.  
+Die Verantwortung für diesen Augenblick zu übernehmen
+heißt, sich innerlich nicht dem Sosein des Jetzt zu
+widersetzen und nicht mit dem zu hadern, was ist. Es bedeutet,
+mit dem Leben eins zu sein.  
+Das Jetzt ist so, wie es ist, weil es nicht anders sein kann.
+Was die Buddhisten schon immer gewusst haben, bestätigt
+heute die Physik: Weder Dinge noch Ereignisse existieren
+isoliert voneinander. Hinter der äußeren Erscheinung sind alle
+Dinge miteinander vernetzt, ist alles Teil der Totalität des
+Kosmos, der die Form hervorbringt, die dieser Augenblick
+annimmt.  
+Wenn du das, was ist, bejahst, verbindest du dich mit der
+Kraft und Intelligenz des Lebens selbst. Nur dann kannst du an
+der positiven Veränderung der Welt mit wirken.  
+
+&nbsp;
+
+>Eine einfache, aber radikale spirituelle Übung ist die, das
+anzunehmen, was das Jetzt bringt - innerlich und äußerlich.  
+
+&nbsp;
+
+>Wenn du deine Aufmerksamkeit auf das Jetzt richtest, stellt
+sich Wachheit ein. Es ist, als erwachtest du aus einem Traum,
+aus dem Traum vom Denken, dem Traum von Vergangenheit
+und Zukunft. Solche Klarheit, solche Einfachheit. Kein Platz
+für Probleme. Bloß dieser Augenblick, so wie er ist.  
+
+&nbsp;
+
+>In dem Augenblick, in dem du mit deiner Aufmerksamkeit in
+das Jetzt eintrittst, wird dir klar, dass das Le ben heilig ist.
+Alles, was du wahrnimmst, hat etwas Heiliges, wenn du
+präsent bist. Je mehr du im Jetzt lebst, umso stärker spürst du
+die kindliche und doch tiefe Freude des Seins und die
+Heiligkeit allen Lebens.  
+
+&nbsp;
+
+>Die meisten Menschen verwechseln das Jetzt mit dem, was im
+Jetzt geschieht, aber so ist es nicht. Das Jetzt ist etwas Tieferes
+als das, was darin geschieht. Es ist der Raum, in dem es
+geschieht.  
+Verwechsle also nicht den Inhalt dieses Augenblicks mit
+dem Jetzt. Das Jetzt ist umfassender als alles, was es enthalten
+könnte.  
+
+&nbsp;
+
+>Wenn du ins Jetzt eintrittst, trittst du aus den Denk inhalten
+heraus. Der unablässige Strom des Denkens verlangsamt sich.
+Die Gedanken beanspruchen nicht länger deine gesamte
+Aufmerksamkeit, absorbieren dich nicht mehr total. Lücken
+entstehen zwischen den Gedanken - Weite, Stille. Allmählich
+wird dir klar, wie viel weiter und tiefer du doch bist als dein
+Denken.  
+
+&nbsp;
+
+>Der Inhalt deines Lebens besteht aus Gedanken, Emo tionen,
+Sinneswahrnehmungen und allem, was du erlebst. »Mein
+Leben«, daraus beziehst du dein Selbstge fühl und glaubst,
+»dein Leben« sei identisch mit dem Lebensinhalt.  
+Ständig übersiehst du dabei eine unbestreitbare Tatsache:
+Dein innerstes »Ich bin«-Gefühl hat nichts mit dem zu tun, was
+in deinem Leben geschieht, es hat nichts mit dem Lebensinhalt
+zu tun. Dieses »Ich bin« ist eins mit dem Jetzt. Es bleibt immer
+gleich. Ob in der Kindheit oder im Alter, bei Gesundheit oder
+Krankheit, Erfolg oder Misserfolg, das »Ich bin« - der Raum
+des Jetzt - bleibt in seiner tiefsten Tiefe unverändert. Es wird
+nur oft mit dem Lebensinhalt verwechselt, sodass das »Ich bin«
+oder Jetzt nur schwach und indirekt - auf dem Umweg über den
+Lebensinhalt - erfahren wird. Mit anderen Worten: Das
+Lebensgefühl wird durch die Umstände, den Gedankenstrom
+und die vielen Dinge dieser Welt beeinträchtigt. Das Jetzt wird
+durch die Zeit verdunkelt.  
+Und so vergisst du, dass du im Sein wurzelst, vergisst du
+deine göttliche Wirklichkeit und verlierst dich in der Welt.
+Verwirrung, Wut, Depressivität, Gewalt und Konflikt treten
+auf, wenn Menschen vergessen, wer sie sind.  
+Dabei ist es so einfach, sich an die Wahrheit zu erinnern
+und heimzukehren:  
+Ich bin nicht meine Gedanken, Emotionen, Sinneswahrnehmungen
+und Erfahrungen. Ich bin nicht mein
+Lebensinhalt. Ich bin das Leben selbst. Ich bin der Raum, in
+dem alles geschieht. Ich bin Bewusstsein. Ich bin das Jetzt. Ich
+bin.  
+
+&nbsp;
+
+---  
+
+&nbsp;
+
+**Wer du wirklich bist**  
 
 &nbsp;

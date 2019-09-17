@@ -433,3 +433,210 @@ Wahrheit fühlen, auf die sie hindeuten.
 **Das egozentrische Selbst**  
 
 &nbsp;
+
+>Der Verstand ist nicht nur unablässig auf der Suche nach
+geistiger Nahrung; er braucht auch Nahrung für seine Identität,
+sein Selbstgefühl. So entsteht das Ego, und es erschafft sich
+ständig neu.  
+
+&nbsp;
+
+>Wenn du über dich selbst nachdenkst oder von dir sprichst
+und »ich« sagst, ist im Allgemeinen »meine Geschichte und
+ich« gemeint. Das ist das »Ich« der Vorlieben und
+Abneigungen, der Ängste und Wünsche, das »Ich«, das nie
+lange zufrieden gestellt ist. Es ist ein im Kopf entstandenes
+Gefühl davon, wer du bist; es speist sich aus der Vergangenheit
+und ist auf seine Erfüllung in der Zukunft ausgerichtet.
+Siehst du, dass dieses Ich ein flüchtiges, vergängliches
+Gebilde ist, dem Wellenmuster auf einer Wasserfläche
+vergleichbar?  
+Wer ist es, der das sieht? Wer ist es, der sich der Vergänglichkeit
+seiner physischen und psychischen Form bewusst
+wird? Ich bin. Das ist das tiefere »Ich«, das nichts mit
+Vergangenheit und Zukunft zu tun hat.  
+
+&nbsp;
+
+>Was bleibt von all den Ängsten und Begierden, die mit
+deinen problematischen Lebensumständen verbunden sind und
+Tag für Tag den größten Teil deiner Aufmerksamkeit
+beanspruchen? Nichts als ein Strich zwischen Geburts- und
+Sterbedatum auf dem Grabstein, ein paar Zentimeter lang.
+Für das egozentrische Selbst ist das ein deprimierender
+Gedanke. Für dich ist er befreiend.  
+
+&nbsp;
+
+>Wenn jeder Gedanke deine gesammelte Aufmerksamkeit in
+Anspruch nimmt, heißt das, dass du dich mit der Stimme im
+Kopf identifizierst. Dann wird das Denken mit Selbstgefühl
+ausgestattet. So entsteht das Ego, ein erdachtes »Ich«. Dieses
+mental konstruierte Selbst fühlt sich unvollständig und
+anfechtbar. Darum sind Angst und Verlangen seine vorherrschenden
+Emotionen und Triebkräfte.  
+Sobald du erkennst, dass eine nie verstummende Stimme
+in deinem Kopf vorgibt, du zu sein, erwachst du aus deiner
+unbewussten Identifikation mit dem Gedankenstrom. Wenn du
+die Stimme bemerkst, wird dir klar, dass du nicht diese Stimme
+- der Denker - bist, sondern der, dem sie bewusst ist.  
+Sich selbst als das Bewusstsein hinter der Stimme zu
+erkennen ist Freiheit.  
+
+&nbsp;
+
+>Das egozentrische Selbst ist immer auf der Suche. Es sucht zu
+seiner Ergänzung mehr von diesem und von jenem, um seinem
+Gefühl der Unvollständigkeit entgegenzuwirken. Das erklärt
+die zwanghafte Beschäftigung des Ego mit der Zukunft.  
+Jedesmal, wenn dir bewusst wird, dass du »auf den
+nächsten Augenblick hin lebst«, hast du dich bereits aus diesem
+egozentrischen Denkmuster gelöst. Im selben Moment kannst
+du dich dafür entscheiden, deine volle Aufmerksamkeit auf den
+gegenwärtigen Augenblick zu richten.  
+Indem du deine volle Aufmerksamkeit auf diesen
+gegenwärtigen Augenblick richtest, aktivierst du in deinem
+Leben eine Intelligenz, die viel umfassender ist als das
+egozentrische Denken.  
+
+&nbsp;
+
+>Wenn du aus dem Ego heraus lebst, reduzierst du den gegenwärtigen
+Augenblick auf ein Mittel zum Zweck. Du lebst für
+die Zukunft, doch kaum hast du deine Ziele erreicht, bist du
+schon wieder unzufrieden.  
+Sobald du deinem Tun mehr Aufmerksamkeit widmest
+als dem zukünftigen Ergebnis dieses Handelns, auf das du
+hoffst, durchbrichst du die alte egozentrische Konditionierung.
+Dann handelst du nicht nur sehr viel effektiver, sondern auch
+mit unendlich mehr Befriedigung und Freude.  
+
+&nbsp;
+
+>Fast jedes Ego enthält mindestens ein Element, das man
+»Opferidentität« nennen könnte. Bei manchen Menschen ist die
+Vorstellung, ein armes Opfer zu sein, so stark ausgeprägt, dass
+sie ihnen zur zweiten Natur geworden ist. Sie beziehen ihr
+Selbstgefühl in der Hauptsache aus Groll und Klagen.  
+Doch selbst wenn deine Klagen vollkommen »berechtigt
+« sind, hast du dir damit eine Identität geschaffen, die
+einem Gefängnis mit Gittern aus Gedanken gleicht. Sieh nur,
+was du dir antust oder, besser gesagt: was dein Kopf dir antut.
+Fühle, wie sehr du emotional an deiner Opfergeschichte hängst,
+und mach dir bewusst, wie zwanghaft es ist, immer daran
+denken oder darüber sprechen zu müssen. Sei als Beobachter
+deines inneren Zustands präsent. Du brauchst nichts zu tun. Mit
+Bewusstheit zugleich setzen Transformation und Freiheit ein.  
+
+&nbsp;
+
+>Klagen und defensives Reagieren sind die bevorzugten
+Verhaltensmuster, mit denen das Ego sich selbst stärkt. Die
+mentalen und emotionalen Aktivitäten vieler Menschen
+bestehen zu einem Großteil im Klagen und Reagieren gegen
+dieses und jenes. Mit diesem Verhalten stempeln sie andere
+oder eine bestimmte Situation als »schlecht« und fühlen sich
+selbst »gut«. Indem sie sich für »gut« halten, fühlen sie sich
+überlegen, und indem sie sich überlegen fühlen, werden sie in
+ihrem Selbstgefühl bestärkt. In Wirklichkeit stärken sie natürlich
+nur die Illusion eines Ego.  
+Kannst du diese Verhaltensmuster bei dir selbst beobachten
+und die klagende Stimme in deinem Kopf als das
+entlarven, was sie ist?  
+
+&nbsp;
+
+>Das egozentrische Selbstgefühl braucht den Konflikt, weil
+seine als getrennt empfundene Identität gestärkt wird, wenn es
+gegen dieses und jenes ankämpft und beweist: Das bin »ich«,
+und das bin »ich« nicht.  
+Häufig beziehen Stämme, Nationen und Religionen ein
+stärkeres Gefühl kollektiver Identität durch ein Feindbild. Was
+wäre der »Gläubige« ohne den »Ungläubigen«?  
+
+&nbsp;
+
+>Kannst du herausfinden, ob du im Umgang mit anderen
+Menschen gewisse Gefühle von Überlegenheit oder
+Unterlegenheit hast? In diesen Gefühlen siehst du das Ego,
+denn es lebt vom Vergleich.  
+Neidgefühle werden ebenfalls durch das Ego erzeugt, das
+sich benachteiligt fühlt, wenn anderen etwas Gutes widerfährt
+oder jemand anders mehr hat, mehr weiß oder mehr erreicht als
+es selbst. Die Identität des Ego beruht auf dem Vergleich und
+erhält sich durch mehr am Leben. Es greift nach allem und
+jedem. Wenn alles andere versagt, lässt sich das fiktive
+Selbstgefühl auch dadurch stärken, dass man sich ungerechter
+vom Leben behandelt fühlt oder mit mehr Krankheiten geschlagen
+zu sein glaubt als andere.  
+Aus welchen Geschichten, welchen Fiktionen beziehst du
+dein Selbstgefühl?  
+
+&nbsp;
+
+>Eingebaut in die Grundstruktur des egozentrischen Selbst ist
+das Bedürfnis, auszugrenzen, zu opponieren und sich zu
+widersetzen, um das Gefühl der Getrenntheit aufrechtzuerhalten,
+von dem das Überleben des Ego abhängt. Das heißt
+»ich« gegen »andere« und »wir« gegen »sie«.  
+Das Ego muss also mit jemandem im Streit liegen oder
+gegen etwas sein. Daraus erklärt sich, warum du dich nach
+Frieden, Freude und Liebe sehnst, sie aber nicht sehr lange
+aushalten kannst. Du behauptest, glücklich sein zu wollen,
+hängst jedoch an deinem Unglücklichsein.  
+Dein Unglücklichsein ist letztlich keine Frage der
+Lebensumstände, sondern der geistigen Konditionierung.  
+
+&nbsp;
+
+>Quälen dich Schuldgefühle, weil du in der Vergangenheit
+einmal etwas getan - oder unterlassen - hast? So viel ist gewiss:
+Du hast zu jenem Zeitpunkt deinem Bewusstseinsgrad oder,
+genauer gesagt, deinem Grad an Unbewusstheit gemäß
+gehandelt. Wärst du aufmerksamer oder bewusster gewesen,
+hättest du dich anders verhalten.  
+Schuldgefühle sind gleichfalls ein Versuch des Ego, sich
+eine Identität zu schaffen, ein Selbstgefühl. Für das Ego spielt
+es keine Rolle, ob das Selbst positiv oder negativ ist. Was du
+getan oder unterlassen hast, war eine Manifestation der
+Unbewusstheit - der menschlichen Unbewusstheit. Das Ego
+nimmt es jedoch persönlich und sagt: »Ich habe das getan«,
+und schon hast du von dir die Vorstellung, ein »schlechter«
+Mensch zu sein.  
+Im Laufe der Geschichte haben die Menschen einander
+unendlich oft auf grausamste Weise Gewalt angetan und
+Schaden zugefügt, und sie tun es noch. Sind sie alle zu
+verdammen, sind sie alle schuldig? Oder sind diese Taten
+lediglich ein Ausdruck der Unbewusstheit, ein Evolutionsstadium,
+aus dem wir jetzt herauswachsen?  
+Das Jesuswort »Vergib ihnen, denn sie wissen nicht, was
+sie tun« gilt auch für dich.  
+
+&nbsp;
+
+>Wenn du dir egoistische Ziele setzt, um frei zu sein, dich
+herauszustreichen oder dein Selbstwertgefühl zu steigern, wirst
+du unbefriedigt bleiben, auch wenn du diese Ziele erreichst.  
+Stecke dir Ziele, aber mach dir klar, dass es unwichtig ist,
+ob du sie erreichst oder nicht. Wenn dein Tun dem Zustand der
+Gegenwärtigkeit entspricht, dann bedeutet es, dass du den
+jetzigen Augenblick nicht zu einem Mittel zum Zweck machst.
+Das Tun selbst wird so in jedem Augenblick befriedigend.
+Durch das egozentrische Bewusstsein wird das Jetzt immer zu
+einem Mittel zum Zweck reduziert.  
+
+&nbsp;
+
+>»Kein Selbst, kein Problem«, sagte der buddhistische Lehrer,
+als er gebeten wurde, die tiefere Bedeutung des Buddhismus zu
+erklären.  
+
+&nbsp;
+
+---  
+
+&nbsp;
+
+**Das Jetzt**  
+
+&nbsp;

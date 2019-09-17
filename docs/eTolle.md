@@ -413,7 +413,7 @@ den Erfolg anderer zu reagieren, als sei ihm damit etwas genommen worden. Es wei
 Groll über den Erfolg eines anderen Menschen deine eigenen Chancen auf Erfolg mindert. Erfolg winkt
 dir nur, wenn du ihn immer willkommen heißt, wo du ihn auch siehst.  
 
-[...] Jedes Neugeborene trägt bereits einen emotionalen Schmerzkörper in sich. Der ist bei einigen in
+[...]Jedes Neugeborene trägt bereits einen emotionalen Schmerzkörper in sich. Der ist bei einigen in
 mancher Hinsicht schwerer und fester als bei anderen. Manche Babys sind die meiste Zeit über recht
 fröhlich. Andere scheinen eine enorme Menge unglücklicher Gefühle in sich zu haben. Es ist wahr, dass
 manche Säuglinge viel schreien, weil ihnen nicht genügend Liebe und Aufmerksamkeit
@@ -437,7 +437,7 @@ verwandte Saite in ihnen hätte anklingen lassen und sie darin nicht unbewusst e
 ihrer eigenen inneren Wirklichkeit gesehen hätten - ihres Schmerzkörpers. Sie waren noch nicht so
 bewusst, dass sie es direkt in sich selbst hätten erkennen können, aber es war der Beginn ihrer
 Bewusstwerdung. Christus kann als der archetypische Mensch verstanden werden, der sowohl den
-Schmerz als auch die Möglichkeit der Schmerzüberwindung verkörpert.  
+Schmerz als auch die Möglichkeit der Schmerzüberwindung verkörpert.   
 
 [...] Egal, was du sagst oder tust oder welches Gesicht du der Welt zeigst, dein mental-emotionaler
 Zustand bleibt nicht verborgen. Jeder Mensch strahlt ein Energiefeld aus, das seiner inneren Verfassung
@@ -476,7 +476,7 @@ des Universums übereinzustimmen, da selbst die Unbewusstheit und das Leiden, da
 Teil der Evolution sind. Wenn du den Kreislauf des Leidens nicht mehr ertragen kannst, beginnst du zu
 erwachen. Der Schmerzkörper hat also durchaus seinen Platz im großen Ganzen.   
 
-[...] Manche Kinder lernen schon dadurch, dass sie mit sehr unbewussten Eltern zusammen sind,
+[...] <span style="color:red ">Manche Kinder lernen schon dadurch, dass sie mit sehr unbewussten Eltern zusammen sind,
 unterbewusst etwas über Ego und Schmerzkörper. Eine Frau, deren beide Eltern ein sehr starkes Ego
 und einen starken Schmerzkörper hatten, erzählte mir, dass sie oft, wenn ihre Eltern laut wurden und
 sich anschrien, sie betrachtete und zu sich selbst sagte, obwohl sie sie liebte: »Die sind bescheuert. Wie
@@ -518,7 +518,7 @@ so scheinen, als hörte das Kind dir gar nicht zu, aber trotzdem bleibt dadurch 
 Hintergrund des kindlichen Bewusstseins bestehen, auch während der Schmerzkörper noch aktiv ist.
 Nach einigen Malen ist diese Bewusstheit gewachsen und der Schmerzkörper schwächer geworden.
 Das Kind gewinnt an Präsenz. Wie du merken wirst, wird dich eines Tages dein Kind darauf aufmerksam
-machen, dass dein Schmerzkörper von dir Besitz ergriffen hat.
+machen, dass dein Schmerzkörper von dir Besitz ergriffen hat.</span>
 
 **Die Herabsetzung des Ego zulassen**  
 Das Ego ist stets auf der Hut vor allem, was es als Herabsetzung empfindet. In diesem Fall springen

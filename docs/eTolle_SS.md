@@ -1472,9 +1472,9 @@ trittst, deine volle, ungeteilte Aufmerksamkeit
 widmest, entziehst du dieser Beziehung Vergangenheit und
 Zukunft, außer für praktische Belange. Wenn du in der
 Begegnung mit jemandem vollkommen präsent bist, gibst du
-deine Vorstellung von seiner Identität auf - deine Interpretation
+deine Vorstellung von seiner Identität auf - deine Interpretation -
 davon, wer er ist und was er in der Vergangenheit gemacht hat
-- und kannst dann ohne die egozentrischen Regungen der
+und kannst dann ohne die egozentrischen Regungen der
 Begierde und Angst mit ihm interagieren. Der Schlüssel dazu
 ist Stille und hellwache Aufmerksamkeit.  
 Wie wunderbar wäre es, in den zwischenmenschlichen
@@ -1988,9 +1988,9 @@ mit den Gedanken auf.
 
 &nbsp;
 
->Was für ein scheußlicher Tag.  
-Er hielt es nicht für nötig, mich anzurufen.  
-Sie hat mich sitzen lassen.  
+>"Was für ein scheußlicher Tag."  
+"Er hielt es nicht für nötig, mich anzurufen."  
+"Sie hat mich sitzen lassen."  
 Solche Geschichten erzählen wir uns und anderen, oft
 klagend. Sie entstehen unbewusst und dienen dazu, unser stets
 angeschlagenes Selbstgefühl dadurch zu stärken, dass wir
@@ -2008,9 +2008,9 @@ Leid, die jedoch nicht als solche erkannt werden, weil
 sie das Ego zufrieden stellen. Das Ego bezieht Kraft aus
 Konflikt und Gegenreaktion.  
 Wie leicht das Leben wäre ohne diese Geschichten!  
-Es regnet.  
-Er hat nicht angerufen.  
-Ich war da. Sie nicht.  
+"Es regnet."  
+"Er hat nicht angerufen."  
+"Ich war da. Sie nicht."  
 
 &nbsp;
 
@@ -2134,4 +2134,8 @@ Hingabe an das, was dem Leben jede transzendente
 Dimension zu verweigern schien, eröffnet den Zugang zu
 ebendieser Dimension.  
 
+&nbsp;
+
 ---
+
+&nbsp;

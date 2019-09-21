@@ -10,6 +10,19 @@ layout: default
 
 &nbsp;
 
+[[1]](#chapter1) *Äußere und innere Stille*  
+[[2]](#chapter2) *Jenseits des Denkens*  
+[[3]](#chapter3) *Das egozentrische Selbst*  
+[[4]](#chapter4) *Das Jetzt*  
+[[5]](#chapter5) *Wer du wirklich bist*  
+[[6]](#chapter6) *Annehmen und Aufgeben*  
+[[7]](#chapter7) *Die Natur*  
+[[8]](#chapter8) *Beziehungen*  
+[[9]](#chapter9) *Der Tod und das Unvergängliche*  
+[[10]](#chapter10) *Das Leiden und die Aufhebung des Leidens*  
+
+&nbsp;
+
 Ein wahrer spiritueller Lehrer hat nichts im herkömmlichen
 Sinne des Wortes zu lehren, er hat nichts, was er dir geben oder
 zufügen könnte wie zum Beispiel neue Informationen,
@@ -27,7 +40,7 @@ zeigen und zu erschließen.
 
 &nbsp;
 
-**Äußere und innere Stille**  
+<a name="chapter1"></a>**Äußere und innere Stille**  
 
 &nbsp;
 
@@ -165,7 +178,7 @@ und Tat von Stille leiten.
 
 &nbsp;
 
-**Jenseits des Denkens**  
+<a name="chapter2"></a>**Jenseits des Denkens**  
 
 &nbsp;
 
@@ -430,7 +443,7 @@ Wahrheit fühlen, auf die sie hindeuten.
 
 &nbsp;
 
-**Das egozentrische Selbst**  
+<a name="chapter3"></a>**Das egozentrische Selbst**  
 
 &nbsp;
 
@@ -637,7 +650,7 @@ erklären.
 
 &nbsp;
 
-**Das Jetzt**  
+<a name="chapter4"></a>**Das Jetzt**  
 
 &nbsp;
 
@@ -814,7 +827,7 @@ bin.
 
 &nbsp;
 
-**Wer du wirklich bist**  
+<a name="chapter5"></a>**Wer du wirklich bist**  
 
 &nbsp;
 
@@ -990,7 +1003,7 @@ seiner Fülle ist bereits in dir, jetzt.
 
 &nbsp;
 
-**Annehmen und Aufgeben**  
+<a name="chapter6"></a>**Annehmen und Aufgeben**  
 
 &nbsp;
 
@@ -1218,7 +1231,7 @@ kannst und Widerstand leistest.
 
 &nbsp;
 
-**Die Natur**  
+<a name="chapter7"></a>**Die Natur**  
 
 &nbsp;
 
@@ -1415,7 +1428,7 @@ Natur wartet seit Millionen Jahren auf dich.
 
 &nbsp;
 
-**Beziehungen**  
+<a name="chapter8"></a>**Beziehungen**  
 
 &nbsp;
 
@@ -1678,7 +1691,7 @@ immer nur dir selbst.
 
 &nbsp;
 
-**Der Tod und das Unvergängliche**  
+<a name="chapter9"></a>**Der Tod und das Unvergängliche**  
 
 &nbsp;
 
@@ -1916,7 +1929,7 @@ Die Stille bringt den Segen mit sich: Frieden.
 
 &nbsp;
 
-**Das Leiden und die Aufhebung des Leidens**  
+<a name="chapter10"></a>**Das Leiden und die Aufhebung des Leidens**  
 
 &nbsp;
 

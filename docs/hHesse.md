@@ -212,7 +212,7 @@ Weltgeschichte und Kunstgeschichte ist voll davon: dass zum Beispiel einer, so w
 Dumme und Unnütze in einer Familie ist, und dass gerade ihm eine Hauptrolle zufällt, und dass gerade dadurch,
 dass er seinem Wesen so treu bleibt, alle Begabten und Erfolgreichen neben ihm klein werden.  
 
-Da gab es zum Beispiel im Anfang des vorigen Jahrhunderts in Frankfurt die hochbegabte Familie Brentano, von
+<span style="color:red ">Da gab es zum Beispiel im Anfang des vorigen Jahrhunderts in Frankfurt die hochbegabte Familie Brentano, von
 deren fast zwanzig Kindern zwei noch heute berühmt sind, die Dichter Clemens und Bettina. Nun, alle diese
 vielen Geschwister waren hochbegabte, interessante, überdurchschnittliche Leute, sprühende Geister, glänzende
 Talente; nur der Älteste war und blien einfältig, er lebte sein ganzes Leben wie ein stiller Hausgeist im
@@ -221,7 +221,7 @@ wurde inmitten der lustigen und witzigen Geschwisterschar, bei der es oft exzent
 einem schweigenden Mittel- und Ruhepunkt, einem wunderlichen Haus-Kleinod von dem Frieden und Güte ausstrahlte.
 Von diesem Einfältigen, diesem Kindgebliebenem, sprechen die Geschwister mit einer Ehrfurcht und Liebe wie
 von keinem anderen Menschen. So war also auch ihm, dem Trottel, dem Blöden, sein Sinn und sein Auftrag
-mitgegeben, und er hat ihn vollkommener erfüllt als alle glänzenden Geschwister.  
+mitgegeben, und er hat ihn vollkommener erfüllt als alle glänzenden Geschwister.</span>   
 
 Kurz, es kommt, wenn ein Mensch das Bedürfnis hat, sein Leben zu rechtfertigen, nicht auf eine objektive,
 allgemeine Höhe der Leistung an, sondern eben darauf, dass er sein Wesen, das ihm mitgegebenwurde, so

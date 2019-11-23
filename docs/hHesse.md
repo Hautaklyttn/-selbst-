@@ -11,8 +11,7 @@ layout: default
 [[5]](#book5) *Jedem Anfang wohnt ein Zauber inne*  
 [[6]](#book6) *Siddharta*  
 [[7]](#book7) *Demian*  
-[[8]](#book8) *Unterm Rad*  
-[[9]](#book9) *China - Weisheit des Ostens*
+[[8]](#book9) *China - Weisheit des Ostens*
 
 &nbsp;
 
@@ -260,3 +259,15 @@ die vollkommene Seligkeit), dann sehen die Menschen anders aus als sonst. Sie si
 <span style="color:red ">Auf eine menschenwürdige Art alt zu werden und jeweils die unserem Alter zukommende Haltung oder Weisheit zu haben, ist eine schwere Kunst; meistens sind wir mit der Seele dem Körper gegenüber entweder voraus oder zurück, und zu den Korrekturen dieser Differenzen gehören jene Erschütterungen des inneren Lebensgefühls, jenes Zittern und Bangen an den Wurzeln, die uns eh und je bei Lebenseinschnitten und Krankheiten befallen. Mir scheint, man darf ihnen gegenüber wohl klein sein und sich klein fühlen, wie Kinder durch Weinen und Schwäche hindurch am besten das Gleichgewicht nach einer Störung des Lebens wieder finden.</span>
 
 &nbsp;
+
+<a name="book7"></a> <font size="-1">aus <span style="color:red ">[7]</span>:</font>  
+
+&nbsp;  
+
+> Ich wollte ja nichts als das zu leben versuchen, was von selber aus mir heraus wollte. Warum war das so schwer?
+
+[...] >>Wir reden zuviel<<, sagte er mit ungewohntem Ernst. >>Das kluge Reden hat gar keinen Wert, gar keinen. Man kommt nur von sich selber weg. Von sich und selber wegkommen ist Sünde. Man muss sich in sich selber völlig verkriechen können wie eine Schildkröte.<<  
+
+&nbsp;
+
+

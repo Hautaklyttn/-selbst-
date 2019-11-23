@@ -223,9 +223,9 @@ Von diesem Einfältigen, diesem Kindgebliebenem, sprechen die Geschwister mit ei
 von keinem anderen Menschen. So war also auch ihm, dem Trottel, dem Blöden, sein Sinn und sein Auftrag
 mitgegeben, und er hat ihn vollkommener erfüllt als alle glänzenden Geschwister.</span>   
 
-Kurz, es kommt, wenn ein Mensch das Bedürfnis hat, sein Leben zu rechtfertigen, nicht auf eine objektive,
+**Kurz, es kommt, wenn ein Mensch das Bedürfnis hat, sein Leben zu rechtfertigen, nicht auf eine objektive,
 allgemeine Höhe der Leistung an, sondern eben darauf, dass er sein Wesen, das ihm mitgegebenwurde, so
-völlig und rein wie möglich in seinem Leben und Tun zur Darstellung bringe.  
+völlig und rein wie möglich in seinem Leben und Tun zur Darstellung bringe.**  
 Tausend Verführungen bringen uns beständig von diesem Wege ab, aber die stärkste aller Verführungen ist die,
 dass man im Grunde ein ganz anderer sein möchte als man ist, dass man Vorbildern und Idealen folgt, die man
 nicht erreichen kann, und auch garnicht erreichen soll. Diese Verführung ist darum für höher veranlagte

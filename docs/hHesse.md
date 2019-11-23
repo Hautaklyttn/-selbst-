@@ -224,7 +224,7 @@ von keinem anderen Menschen. So war also auch ihm, dem Trottel, dem Blöden, sei
 mitgegeben, und er hat ihn vollkommener erfüllt als alle glänzenden Geschwister.</span>   
 
 **Kurz, es kommt, wenn ein Mensch das Bedürfnis hat, sein Leben zu rechtfertigen, nicht auf eine objektive,
-allgemeine Höhe der Leistung an, sondern eben darauf, dass er sein Wesen, das ihm mitgegebenwurde, so
+allgemeine Höhe der Leistung an, sondern eben darauf, dass er sein Wesen, das ihm mitgegeben wurde, so
 völlig und rein wie möglich in seinem Leben und Tun zur Darstellung bringe.** Tausend Verführungen bringen 
 uns beständig von diesem Wege ab, aber die stärkste aller Verführungen ist die,
 dass man im Grunde ein ganz anderer sein möchte als man ist, dass man Vorbildern und Idealen folgt, die man

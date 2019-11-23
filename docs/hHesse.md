@@ -270,4 +270,47 @@ die vollkommene Seligkeit), dann sehen die Menschen anders aus als sonst. Sie si
 
 &nbsp;
 
+<a name="book8"></a> <font size="-1">aus <span style="color:red ">[8]</span>:</font>  
+
+&nbsp;  
+
+[...] Noch im selben Jahr kam das andere Hauptwerk der chinesischen Klassik auf den deutschen Markt, das *Taoteking* des Lao Tse (ca. 600 v. Chr.), übersetzt durch den Tübinger Altteststamentler und Orientalisten Julius Grill. Ihm folgte 1911 die Übertragung von Richard Wilhelm, beide aus der Ursprache verdeutscht in sprachlich unterschiedlichen Versionen. Auch sie hat Hesse (in der »Münchner Zeitung« vom 24. 5. 1911) empfohlen und miteinander verglichen, wobei er als Dichter die sprachlich originellere bevorzugte: »Beide sind gründliche und schöne Arbeiten. Mag die Grill’sche Ausgabe mit ihrem reichen Kommentar die wissenschaftlich brauchbarere sein, so zeichnet sich dafür die von Wilhelm durch eine kräftigere, bestimmtere, persönlichere Sprache und damit auch durch eine leichtere Zugänglichkeit aus.« Aber wichtiger als das Formalewaren ihm die lyrische Aussage und der Humor dieses Werkes, dessen scheinbar schlichte Verse und paradox anmutende Parabeln Lebenswahrheiten enthalten, die sich weniger dem kausalen Denken als dem intuitiven Gefühlerschließen. Für Hesse hob es sich wohltuend ab gegen die kalte Logik und die Spitzfindigkeiten westlicher Philosophie. Verglichen mit »den Seitensprüngen abendländischer Denkakrobatik«, schrieb er in seiner ersten Empfehlung des Lao Tse, dieses naturverbunden-lebensfrohen Weisen aus Chinas Süden, »kann man den Eindruck gewinnen, dieser uralte Chinese habe die elementaren Werte besser erkannt und habe größer und zweckmäßiger an der Entwicklung der Menschheit gearbeitet, als so viele instinktverlassene Abendländer in ihrer anarchischen Spezialistenphilosophie.«   
+
+&nbsp;  
+
+**„Der erhobene Finger“**
+
+Meister Djü-dschi war, wie man uns berichtet,  
+Von stiller, sanfter Art und so bescheiden,  
+Daß er auf Wort und Lehre ganz verzichtet,  
+Denn Wort ist Schein, und jeden Schein zu meiden  
+War er gewissenhaft bedacht.  
+Wo manche Schüler, Mönche und Novizen  
+Vom Sinn der Welt, vom höchsten Gut  
+In edler Rede und in Geistesblitzen  
+Gern sich ergingen, hielt er schweigend Wacht,  
+Vor jedem Überschwange auf der Hut.  
+Und wenn sie ihm mit ihren Fragen kamen,  
+Den eitlen wie den ernsten, nach dem Sinn  
+Der alten Schriften, nach den Buddha-Namen,  
+Nach der Erleuchtung, nach der Welt Beginn  
+Und Untergang, verblieb er schweigend,  
+Nur leise mit dem Finger aufwärts zeigend.  
+Und dieses Fingers stumm-beredtes Zeigen  
+Ward immer inniger und mahnender: es sprach,  
+Es lehrte, lobte, strafte, wies so eigen  
+Ins Herz der Welt und Wahrheit, daß hernach  
+So mancher Jünger dieses Fingers sachte  
+Hebung verstand, erbebte und erwachte.  
+
+&nbsp;  
+
+[...] «Schließlich aber ist doch ein menschlicher Eindruck der stärkste. Es ist der der religiösen Gebundenheit all dieser Millionen Seelen. Der ganze Osten atmet Religion, wie der Westen Vernunft und Technik atmet. Primitiv und jedem Zufall preisgegeben scheint das
+Seelenleben des Abendländers, verglichen mit der geschirmten, gepflegten, vertrauensvollen Religiösität des Asiaten, er sei Buddhist oder Mohammedaner oder was immer. Dieser Eindruck beherrscht alle anderen, denn hier zeigt der Vergleich eine Stärke des Ostens,
+eine Not und Schwäche des Abendlandes, und hier fühlen sich alle Zweifel, Sorgen und Hoffnungen unserer Seele bestärkt und bestätigt. Überall erkennen wir die Überlegenheit unserer Zivilisation und Technik, und überall sehen wir die religiösen Völker des Ostens noch ein Gut genießen, das uns fehlt und das wir eben darum höher stellen als jene Überlegenheiten. Es ist klar, daß kein Import aus Osten uns hier helfen kann, kein Zurückgehen auf Indien oder China, auch kein Zurückflüchten in ein irgendwie formuliertes Kirchenchristentum. Aber es ist ebenso klar, daß Rettung und Fortbestand der europäiischen Kultur nur möglich ist durch das Wiederfinden seelischer Lebenskunst und seelischen Gemeinbesitzes. Ob Religion etwas sei, das überwunden und ersetzt werden könne, mag Frage bleiben. Daß Religion oder deren Ersatz das ist, was uns zutiefst fehlt, das ist mir nie so unerbittlich klar geworden wie unter den Völkern Asiens.»  
+
+[...] In letzter Zeit kam ich, nach zehn Jahren Pause, wieder an die Lektüre Nietsches und finde darin sehr viele neue Anregung und Genuß, allerdings einen höchst schmerzlichen Genuß, denn es gibt kaum ein melancholischeres Bils als das dieses edlen, feinst organisierten Mannes, der in einer unsäglichen Einsamkeit lebte und dessen zart organisierte Seele jeden Schmerz, den er als Denker andern zufügte, vorher tiefer selbst empfunden hatte. Dabei ist mir in seinem >>Antichrist<< eine kleine Stelle über Laotse aufgefallen, die dich frappieren wird. Es heißt da, Jesus >>würde sich unter Indern der Sankhyam-Begriffe, unter Chinesen derer des Laotse bedient haben<<. Diese Verwandtschaft hat also Nietzsche schon 1888 gefühlt!  
+
+
+
 

@@ -212,10 +212,10 @@ Weltgeschichte und Kunstgeschichte ist voll davon: dass zum Beispiel einer, so w
 Dumme und Unnütze in einer Familie ist, und dass gerade ihm eine Hauptrolle zufällt, und dass gerade dadurch,
 dass er seinem Wesen so treu bleibt, alle Begabten und Erfolgreichen neben ihm klein werden.  
 
-<span style="color:red ">Da gab es zum Beispiel im Anfang des vorigen Jahrhunderts in Frankfurt die hochbegabte Familie Brentano, von
+<span style="color:red ">Da gab es zum Beispiel am Anfang des vorigen Jahrhunderts in Frankfurt die hochbegabte Familie Brentano, von
 deren fast zwanzig Kindern zwei noch heute berühmt sind, die Dichter Clemens und Bettina. Nun, alle diese
 vielen Geschwister waren hochbegabte, interessante, überdurchschnittliche Leute, sprühende Geister, glänzende
-Talente; nur der Älteste war und blien einfältig, er lebte sein ganzes Leben wie ein stiller Hausgeist im
+Talente; nur der Älteste war und blieb einfältig, er lebte sein ganzes Leben wie ein stiller Hausgeist im
 Vaterhaus, zu nichts zu brauchen, er war fromm als Katholik, geduldig und gutmütig als Bruder und Sohn, und
 wurde inmitten der lustigen und witzigen Geschwisterschar, bei der es oft exzentrisch zuging, immer mehr zu
 einem schweigenden Mittel- und Ruhepunkt, einem wunderlichen Haus-Kleinod von dem Frieden und Güte ausstrahlte.

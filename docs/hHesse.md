@@ -11,7 +11,7 @@ layout: default
 [[5]](#book5) *Jedem Anfang wohnt ein Zauber inne*  
 [[6]](#book6) *Siddharta*  
 [[7]](#book7) *Demian*  
-[[8]](#book9) *China - Weisheit des Ostens*
+[[8]](#book8) *China - Weisheit des Ostens*
 
 &nbsp;
 

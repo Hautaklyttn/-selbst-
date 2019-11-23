@@ -266,7 +266,7 @@ die vollkommene Seligkeit), dann sehen die Menschen anders aus als sonst. Sie si
 
 > Ich wollte ja nichts als das zu leben versuchen, was von selber aus mir heraus wollte. Warum war das so schwer?
 
-[...] >>Wir reden zuviel<<, sagte er mit ungewohntem Ernst. >>Das kluge Reden hat gar keinen Wert, gar keinen. Man kommt nur von sich selber weg. Von sich und selber wegkommen ist Sünde. Man muss sich in sich selber völlig verkriechen können wie eine Schildkröte.<<  
+[...] >>Wir reden zuviel<<, sagte er mit ungewohntem Ernst. >>Das kluge Reden hat gar keinen Wert, gar keinen. Man kommt nur von sich selber weg. Von sich selber wegkommen ist Sünde. Man muss sich in sich selber völlig verkriechen können wie eine Schildkröte.<<  
 
 &nbsp;
 

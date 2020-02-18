@@ -199,3 +199,115 @@ die Wahrheit im Innern zu finden.
 
 ![tao_05](./assets/pics/tao_05.png)  
 &nbsp;  
+
+## 6  
+
+![tao_06](./assets/pics/tao_01.png)  
+&nbsp;
+
+## 7  
+Der Himmel ist ewig - die Erde von Dauer.  
+Weshalb sind Himmel und Erde ewig von Dauer?  
+Sie leben nicht nur für sich selbst.  
+Dies ist das Geheimnis ihrer Dauerhaftigkeit.  
+
+Deshalb setzt sich der Weise hintan,  
+so endet er vorne.  
+Er bleibt Zeuge des Lebens,  
+so ist er von Dauer.  
+
+Diene den Bedürfnissen anderer,  
+so werden all deine eigenen Bedürfnisse gestillt.  
+Selbstloses Handeln bringt Erfüllung.  
+
+![tao_07](./assets/pics/tao_07.png)  
+&nbsp;  
+
+## 8  
+Das höchste Gut ist wie das Wasser,  
+das alle Dinge nährt, ohne sich zu bemühen.  
+Es fließt an niedrige Orte, die Menschen verabscheuen.  
+Somit gleicht es dem Tao.  
+
+Lebe in Übereinstimmung mit der Natur der Dinge.  
+Beim Wohnen: bleibe erdnah. Beim Meditieren: geh tief in dein Herz.  
+Im Umgang mit anderen: Sei sanft und gütig.  
+Halte dein Wort.  
+Herrsche gerecht.  
+Sei zeitgemäß und wähle den richtigen Zeitpunkt.  
+
+Wer in Übereinstimmung mit der Natur lebt,  
+läuft dem Wesen der Dinge nicht zuwider.  
+Er bewegt sich in Harmonie mit dem Augenblick  
+und kennt stets die Wahrheit dessen, was zu tun ist.  
+
+![tao_08](./assets/pics/tao_08.png)  
+&nbsp;
+
+## 9  
+
+![tao_09](./assets/pics/tao_02.png)  
+&nbsp;
+
+## 10  
+
+Kannst du Körper und Seele haben,  
+das Eine umfassen  
+und Trennung vermeiden?  
+
+Kannst du deinen Körper so geschmeidig werden lassen  
+wie den eines neugeborenen Kindes?  
+Kannst du beim Öffnen und Schließen der Himmelspforte  
+die weibliche Rolle spielen?  
+
+Kannst du dein Volk lieben  
+und dein Reich beherrschen,  
+ohne dich wichtig zu finden?  
+
+Hervorbringen und nähren,  
+haben, doch nicht besitzen,  
+arbeiten, doch kein Lob erwarten,  
+führen, ohne Kontrolle zu üben oder zu dominieren.  
+
+Wer auf diese Kraft achtet,  
+bringt das Tao in die Welt.  
+Das ist die höchste Tugend.  
+
+![tao_10](./assets/pics/tao_10.png)  
+&nbsp;  
+
+## 11
+
+
+![tao_11](./assets/pics/tao_03.png)  
+&nbsp;  
+
+## 12
+
+
+![tao_12](./assets/pics/tao_04.png)  
+&nbsp;  
+
+## 13
+
+
+![tao_13](./assets/pics/tao_05.png)  
+&nbsp;  
+
+## 14
+
+
+![tao_14](./assets/pics/tao_01.png)  
+&nbsp;  
+
+## 15
+
+
+![tao_15](./assets/pics/tao_07.png)  
+&nbsp;  
+
+## 16
+
+
+![tao_16](./assets/pics/tao_08.png)  
+&nbsp;

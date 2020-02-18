@@ -102,4 +102,94 @@ Sie werden bei diesen glücklichen, erfüllten Menschen auf einen außergewöhnl
 
 <a name="book2"></a> <font size="-1">aus <span style="color:red ">[2]</span>:</font>  
 
-&nbsp;
+## 1  
+Das Tao, das mitgeteilt werden kann,  
+ist nicht das ewige Tao.  
+Der Name, der genannt werden kann,  
+ist nicht der ewige Name.  
+Das Tao ist sowohl benannt wie namenlos.  
+Das Namenlose ist der Ursprung aller Dinge,  
+als Benanntes ist es die Mutter der zehntausend Dinge.  
+Stets frei von Wünschen, erkennst du klar das Geheimnis.  
+Stets in Wünschen verstrickt, siehst du nur die Erscheinungsformen.  
+Doch das Geheimnis selbst ist das Tor  
+zu allem Verstehen.   
+
+![tao_01](./assets/pics/tao_01.png)  
+
+## 2
+Unter dem Himmel sehen alle Schönheit nur deshalb als schön, weil es Hässliches gibt.  
+Alle erkennen Gutes nur deshalb als gut, weil es Böses gibt.  
+
+Sein und Nichtsein erzeugen einander.  
+Das Schwierige entsteht aus dem Leichten.  
+Lang und kurz bestimmen einander wie hoch und niedrig.  
+Vorher und nachher folgen einander.  
+Daher lebt der Weise offen mit scheinbarer Dualität und paradoxer Einheit.  
+Der Weise handelt ohne Mühe und lehrt ohne Worte.  
+Pflegt Dinge, ohne sie zu besitzen,  
+arbeitet, doch nicht gegen Lohn,  
+wetteifert, doch nicht für ein Ergebnis.  
+
+Wenn das Werk getan ist, ist es vergessen.  
+Daher währt es ewig.  
+
+![tao_02](./assets/pics/tao_02.png)  
+
+## 3  
+Wird Stellung Wert beigemessen,  
+entsteht Streitsucht  
+Steht Besitz zu hoch im Kurs,  
+beginnen die Menschen zu stehlen.  
+Begehrenswertes nicht zeigen, so macht man,  
+dass des Volkes Herz nicht wirr wird.  
+
+Der Weise herrscht also:  
+Er leert Geist und Herz,  
+er schwächt den Ehrgeiz und stärkt die Knochen.  
+
+Übe dich im Nichttun.  
+Ist das Handeln rein und selbstlos,  
+findet alles seinen vollkommenen Platz.  
+
+![tao_03](./assets/pics/tao_03.png)  
+
+## 4  
+Das Tao ist leer,  
+doch unerschöpflich,  
+bodenlos,  
+der Ahne von allem.  
+
+In ihm werden scharfe Kanten rund,  
+verschlungene Knoten lösen sich,  
+die Sonne wird weicher durch eine Wolke,  
+der Staub setzt sich.  
+
+Es ist verborgen, doch immer da.  
+Ich weiß nicht, wer es gebar.  
+Es scheint der gemeinsame Ahne von allem zu sein, der Vater der Dinge.  
+
+![tao_04](./assets/pics/tao_04.png)  
+
+## 5  
+Himmel und Erde sind unvoreingenommen.  
+Sie sehen die zehntausend Dinge als Strohhunde.  
+Der Weise ist nicht sentimental,  
+er behandelt sein ganzes Volk wie Strohhunde.  
+
+Der Weise ist wie Himmel und Erde:  
+ihm ist keiner besonders lieb,  
+noch missbilligt er jemanden.  
+Er gibt und gibt bedingungslos  
+und bietet seine Schätze allen an.  
+
+Zwischen Himmel und Erde  
+ist ein Raum wie ein Blasebalg,  
+leer und unerschöpflich,  
+je mehr er genutzt wird, desto mehr bringt er hervor.  
+
+Halte am Mittelpunkt fest.  
+Der Mensch wurde gemacht, still dazusitzen und  
+die Wahrheit im Innern zu finden.  
+
+![tao_05](./assets/pics/tao_05.png)  

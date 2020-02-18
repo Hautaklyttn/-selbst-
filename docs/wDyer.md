@@ -101,6 +101,7 @@ Sie werden bei diesen glücklichen, erfüllten Menschen auf einen außergewöhnl
 &nbsp;
 
 <a name="book2"></a> <font size="-1">aus <span style="color:red ">[2]</span>:</font>  
+&nbsp;  
 
 ## 1  
 Das Tao, das mitgeteilt werden kann,  
@@ -116,6 +117,7 @@ Doch das Geheimnis selbst ist das Tor
 zu allem Verstehen.   
 
 ![tao_01](./assets/pics/tao_01.png)  
+&nbsp;  
 
 ## 2
 Unter dem Himmel sehen alle Schönheit nur deshalb als schön, weil es Hässliches gibt.  
@@ -135,6 +137,7 @@ Wenn das Werk getan ist, ist es vergessen.
 Daher währt es ewig.  
 
 ![tao_02](./assets/pics/tao_02.png)  
+&nbsp;  
 
 ## 3  
 Wird Stellung Wert beigemessen,  
@@ -153,6 +156,7 @@ Ist das Handeln rein und selbstlos,
 findet alles seinen vollkommenen Platz.  
 
 ![tao_03](./assets/pics/tao_03.png)  
+&nbsp;  
 
 ## 4  
 Das Tao ist leer,  
@@ -170,6 +174,7 @@ Ich weiß nicht, wer es gebar.
 Es scheint der gemeinsame Ahne von allem zu sein, der Vater der Dinge.  
 
 ![tao_04](./assets/pics/tao_04.png)  
+&nbsp;  
 
 ## 5  
 Himmel und Erde sind unvoreingenommen.  
@@ -193,3 +198,4 @@ Der Mensch wurde gemacht, still dazusitzen und
 die Wahrheit im Innern zu finden.  
 
 ![tao_05](./assets/pics/tao_05.png)  
+&nbsp;  

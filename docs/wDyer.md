@@ -176,6 +176,14 @@ Es scheint der gemeinsame Ahne von allem zu sein, der Vater der Dinge.
 ![tao_04](./assets/pics/tao_04.png)  
 &nbsp;  
 
+Bleiben Sie heutew in einer beliebigen Situation still, statt verbal zu reagieren, und achten Sie auf ihre Gedanken. Beschließen Sie beispielsweise bei einem geselligen Beisammensein oder in einer geschäftlichen Runde, die Leere zu suchen, sie sich in der Stille findet, um sich Ihres unendlichen Selbst bewusst zu werden. Bitten Sie dieses, Sie wissen zu lassen, wann und ob Sie antworten sollen. Wenn Sie merken, wie Ihr weltliches Ego deutet oder urteilt, so beobachten Sie es einfach, ohne es zu kritisieren oder zu verändern. Es werden Ihnen immer mehr Situationen auffallen, in denen nicht zu reagieren sich friedlich und freudig anfühlt. Verweilen Sie stattdessen in der verborgenen, jedoch stets gegenwärtigen Unendlichkeit.  
+Vielleicht schreiben Sie sich den folgenden Rat meines Lehrers Nisargadatta Maharaj ab und hängen ihn gut sichtbar auf, damit Sie ihn jeden Tag lesen können:  
+>Weisheit heißt erkennen, dass ich nichts bin,  
+Liebe heißt lernen, dass ich alles bin,  
+und zwischen den beiden bewegt sich mein Leben.  
+
+&nbsp;
+
 ## 5  
 Himmel und Erde sind unvoreingenommen.  
 Sie sehen die zehntausend Dinge als Strohhunde.  
@@ -200,7 +208,26 @@ die Wahrheit im Innern zu finden.
 ![tao_05](./assets/pics/tao_05.png)  
 &nbsp;  
 
+Geht Ihnen ein Gedanke durch den Kopf, der andere ausschließt, so wollen Sie als »besonders« und damit als jemand gelten, der außerordentliche Gunst von seinem Seinsursprung verdient. Haben Sie sich erst einmal in diese Kategorie eingeordnet, so finden Sie sich wichtiger als andere, die Sie als weniger verdienstvoll einschätzen. Ein solches Denken bewirkt, dass Sie die allumfassende Macht des Tao verlieren. Organisationen — einschließlich religiöser —, die einige Mitglieder als »bevorzugt« bezeichnen, sind nicht im Tao zentriert. Egal, wie sehr Sie sich bemühen, sich und andere von Ihrer spirituellen Verbundenheit zu überzeugen, so hat der Akt des Ausschlusses und der Voreingenommenheit bereits verhindert, dass Sie aus Ihrem wahren Selbst heraus handeln. Das heißt: Wenn ein Gedanke oder Verhalten uns trennt, kommt es nicht von Gott; wenn es uns verbindet, ist es von Gott. Bleiben Sie auf das Tao ausgerichtet, das in Ihnen wohnt, rät Laotse, und Sie werden keinen einzigen Gedanken haben, der nicht im Einklang mit dem Geist wäre.  
+&nbsp;
+
 ## 6  
+Den Geist, der niemals stirbt  
+nennt man geheimnisvoll Weibliches.  
+Auch wenn es zum ganzen Universum wird,  
+geht seine unbefleckte Reinheit nie verloren.  
+Auch wenn es zahllose Formen annimmt,  
+bleibt seine wahre Identität intakt.  
+
+Das Tor zum geheimnisvoll Weiblichen  
+nennt man die Wurzel der Schöpfung.  
+
+Höre auf ihre Stimme,  
+höre ihr Echo in der ganzen Schöpfung.  
+Ohne Fehl offenbart sie ihre Gegenwart.  
+Ohne Fehl führt sie zur eigenen Vollkommenheit.  
+Auch wenn sie unsichtbar ist, dauert sie fort,  
+sie wird niemals enden.  
 
 ![tao_06](./assets/pics/tao_01.png)  
 &nbsp;
@@ -245,6 +272,20 @@ und kennt stets die Wahrheit dessen, was zu tun ist.
 &nbsp;
 
 ## 9  
+Immer weiter füllen  
+ist nicht so gut wie aufhören.  
+Überfüllt, tropft es aus hohler Hand,  
+es ist besser, nicht mehr einzugießen.  
+
+Schärfe das Messer zu oft,  
+und seine Klinge wird bald stumpf.  
+Fülle dein Haus mit Jade und Gold,  
+und es bringt Unsicherheit.  
+Plustere dich auf mit Ehre und Stolz,  
+und niemand kann dich retten vor dem Fall.  
+
+Zieh dich zurück ist das Werk getan,  
+dies ist der Weg des Himmels.
 
 ![tao_09](./assets/pics/tao_02.png)  
 &nbsp;

@@ -335,24 +335,89 @@ hängt von dem ab, was nicht ist.*
 
 **Üben Sie täglich die Macht der Stille**  
 Es gibt viele verschiedene Arten, dies auf persönliche Weise zu tun. Meditieren beispielsweise ist ein wunderbares Mittel, Ihnen zu jener Glückseligkeit zu verhelfen, die entsteht, wenn Sie mit Ihrer inneren Leere verbunden sind, mit jenem Ort, an dem Sie den Weg des Tao erfahren. Geloben Sie, sich des >>ortlosen Ortes<< in sich bewusster zu werden, aus dem alle Gedanken entspringen und nach außen fliehen. Finden Sie ihre eigene Weise den Raum in sich zu betreten, der sauber, rein und im Einklang mit der Liebe ist.  
-Der Unterschied zwischen Heiligen und der übrigen Menschheit besteht darin, dass sie liebevolle, reine Überzeugungen haben, wir hingegen nicht. Sie wirken ausschließlich aus ihrem Kern, von wo aus der Weg des Tao unsichtbar ihr körperliches Sein durchströmt. Das ist das erste Ziel, wenn Sie lernen, zu meditieren oder in der Stille zu sein: Ihre Essenz zu bitten, sich zu offenbaren und Sie in der Leere leben zu lassen.
+Der Unterschied zwischen Heiligen und der übrigen Menschheit besteht darin, dass sie liebevolle, reine Überzeugungen haben, wir hingegen nicht. Sie wirken ausschließlich aus ihrem Kern, von wo aus der Weg des Tao unsichtbar ihr körperliches Sein durchströmt. Das ist das erste Ziel, wenn Sie lernen, zu meditieren oder in der Stille zu sein: Ihre Essenz zu bitten, sich zu offenbaren und Sie in der Leere leben zu lassen.  
+&nbsp;
 
 ## 12  
+Die fünf Farben machen das Auge blind.  
+Die fünf Töne machen das Ohr taub.  
+Die fünf Gewürze stumpfen den Geschmackssinn ab.  
+Rennen und Jagen machen den Geist der Menschen verrückt.  
 
+Energie zum Erlangen seltener Gegenstände zu vergeuden  
+hemmt nur das eigene Wachstum.  
+
+Der Meister beobachtet die Welt,  
+vertraut aber auf seine innere Vision.  
+Er lässt die Dinge kommen und gehen.  
+Er zieht das, was innen ist, dem vor, was außen ist.  
 
 ![tao_12](./assets/pics/tao_04.png)  
 &nbsp;  
 
-## 13
+## 13  
+Gunst und Ungnade erscheinen erschreckend.  
+Eine hohe Stellung setzt dir sehr zu.  
 
+Weshalb sind Gunst und Ungnade erschreckend?  
+Gunst suchen ist erniedrigend:  
+erschreckend, wenn sie erlangt ist,  
+erschreckend, wenn sie verloren geht.  
+
+Weshalb setzt eine hohe Stellung dir sehr zu?  
+Wir haben deswegen viele Probleme,  
+weil wir ein Ich haben.  
+Hätten wir kein Ich,  
+welche Schwierigkeiten hätten wir dann?  
+
+Das wahre Selbst des Menschen ist ewig,  
+doch er denkt: Ich bin dieser Körper und werde bald sterben.  
+Wenn wir keinen Körper haben, welches Unheil kann uns heimsuchen?  
+Wer sich als alles sieht,  
+taugt, Hüter der Welt zu sein.  
+Wer sich selbst liebt wie alle,  
+taugt, Lehrer der Welt zu sein.  
 
 ![tao_13](./assets/pics/tao_05.png)  
 &nbsp;  
 
-## 14
+Der dreizehnte Spruch besagt klipp und klar: Das Ego und das Bedürfnis, wichtig zu sein, sind Störenfriede, die von ihrem weltlichen Ich ständig mit Energie versorgt werden. Der Weg des Tao besteht darin, sich ihres ewigen Wesens bewusst zu sein und aus Ihrem Ich oder Körper herauszutreten. Kein Ego zu haben bedeutet keine Schwierigkeiten zu haben. Ein großes Ego hingegen bringt große Schwierigkeiten. Das Tao Te King stellt die rhetorische Frage: >>Wenn wir keinen Körper haben, welches Unheil kann uns dann heimsuchen?<< Wenn Sie sich selbst diese Frage stellen, werden Sie eine göttliche, unsichtbare Seele entdecken, die unabhängig von den Meinungen all dieser gequälten Suchenden ist, die unsere Welt bevölkern. Wenn Sie im Geist des Tao leben, wird Ihre wahres Wesen das Trachten nach äußerer Gunst durch das Bewusstsein ersetzen, dass das, was andere über Sie denken, Sie wirklich nicht zu kümmern braucht!   
+&nbsp;
 
+## 14  
+Was nicht zu sehen ist, heißt unsichtbar.  
+Was nicht zu hören ist, heißt unhörbar.  
+Was nicht zu halten ist, heißt unfassbar.  
+Diese drei lassen sich nicht bestimmen,  
+dabei verschmelzen sie in eines.  
+
+Jedes der drei ist zu subtil, um es zu beschreiben.  
+Durch Intuition kannst du es sehen,  
+hören  
+und fühlen.  
+Dann sind das Unsichtbare,  
+Unhörbare  
+und Unfassbare  
+als eines da.  
+
+Es geht und bringt keine Dämmerung,  
+es geht unter und bringt keine Dunkelheit,  
+es geht immer, unnennbar, weiter,  
+und kehrt ins Nichts zurück.  
+
+Nähere dich ihm: da ist kein Anfang.  
+Folge ihm: da ist kein Ende.  
+Du kannst es nicht kennen, aber es sein,  
+lebe gelassen dein Leben.  
+
+Entdecken, wie die Dinge stets waren,  
+bringt im Einklang mit dem Weg.  
 
 ![tao_14](./assets/pics/tao_01.png)  
+&nbsp;  
+
+Manche Gelehrte haben den vierzehnten Spruch des Tao Te King als den wichtigsten unter den insgesamt einundachtzig hervorgehoben, weil er die Bedeutung des einen Grundsatzes unterstreicht, der dem gesamten Dasein zugrunde liegt. Wenn Sie diese unsichtbare, unfassbare, unermessliche Kraft anzapfen, können Sie jene Harmonie erlangen, die mit der Verbindung mit dem Einssein einhergeht. Harmonie aber ist ihr letztendliches Ziel, wenn Sie sich dazu entscheiden, ein ver-Geist-igtes Leben zu führen. Sie möchten ihr Ego aufgeben lernen, das sich mit der Welt der Dinge, des Besitzes und der Leistungen identifiziert, und wieder an den ortlosen Ort gelangen, aus dem Sie und alle anderen hervorgegangen sind. Dadurch erlangen Sie die mystischen, ja nahezu magischen Kräfte Ihres ewigen Seinsursprungs. Dort leben Sie jenseits der Welt der Formen.  
+Wenn sie ausschließlich >>in der Form<< leben, konzentrieren Sie sich darauf, In-Form-ationen zu sammeln. Der vierzehnte Spruch des Tao fordert Sie auf, in Inspirationen statt Informationen einzutauchen und eins mit dem zu werden, was immer war. Wie dieser Spruch des Tao so einsichtsvoll schließt: >>Entdecken, wie alles stets war, bringt im Einklang mit dem Weg.<<
 &nbsp;  
 
 ## 15
@@ -365,4 +430,28 @@ Der Unterschied zwischen Heiligen und der übrigen Menschheit besteht darin, das
 
 
 ![tao_16](./assets/pics/tao_08.png)  
+&nbsp;
+
+## 17
+
+
+![tao_15](./assets/pics/tao_01.png)  
+&nbsp;  
+
+## 18
+
+
+![tao_16](./assets/pics/tao_02.png)  
+&nbsp;
+
+## 19
+
+
+![tao_15](./assets/pics/tao_03.png)  
+&nbsp;  
+
+## 20
+
+
+![tao_20](./assets/pics/tao_04.png)  
 &nbsp;

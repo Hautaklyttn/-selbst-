@@ -104,7 +104,7 @@ Sie werden bei diesen glücklichen, erfüllten Menschen auf einen außergewöhnl
 &nbsp;  
 
 ## 1  
-Das Tao, das mitgeteilt werden kann,  
+*Das Tao, das mitgeteilt werden kann,  
 ist nicht das ewige Tao.  
 Der Name, der genannt werden kann,  
 ist nicht der ewige Name.  
@@ -114,13 +114,13 @@ als Benanntes ist es die Mutter der zehntausend Dinge.
 Stets frei von Wünschen, erkennst du klar das Geheimnis.  
 Stets in Wünschen verstrickt, siehst du nur die Erscheinungsformen.  
 Doch das Geheimnis selbst ist das Tor  
-zu allem Verstehen.   
+zu allem Verstehen.*  
 
 ![tao_01](./assets/pics/tao_01.png)  
 &nbsp;  
 
 ## 2
-Unter dem Himmel sehen alle Schönheit nur deshalb als schön, weil es Hässliches gibt.  
+*Unter dem Himmel sehen alle Schönheit nur deshalb als schön, weil es Hässliches gibt.  
 Alle erkennen Gutes nur deshalb als gut, weil es Böses gibt.  
 
 Sein und Nichtsein erzeugen einander.  
@@ -134,13 +134,13 @@ arbeitet, doch nicht gegen Lohn,
 wetteifert, doch nicht für ein Ergebnis.  
 
 Wenn das Werk getan ist, ist es vergessen.  
-Daher währt es ewig.  
+Daher währt es ewig.*  
 
 ![tao_02](./assets/pics/tao_02.png)  
 &nbsp;  
 
 ## 3  
-Wird Stellung Wert beigemessen,  
+*Wird Stellung Wert beigemessen,  
 entsteht Streitsucht  
 Steht Besitz zu hoch im Kurs,  
 beginnen die Menschen zu stehlen.  
@@ -153,13 +153,13 @@ er schwächt den Ehrgeiz und stärkt die Knochen.
 
 Übe dich im Nichttun.  
 Ist das Handeln rein und selbstlos,  
-findet alles seinen vollkommenen Platz.  
+findet alles seinen vollkommenen Platz.*  
 
 ![tao_03](./assets/pics/tao_03.png)  
 &nbsp;  
 
 ## 4  
-Das Tao ist leer,  
+*Das Tao ist leer,  
 doch unerschöpflich,  
 bodenlos,  
 der Ahne von allem.  
@@ -171,12 +171,12 @@ der Staub setzt sich.
 
 Es ist verborgen, doch immer da.  
 Ich weiß nicht, wer es gebar.  
-Es scheint der gemeinsame Ahne von allem zu sein, der Vater der Dinge.  
+Es scheint der gemeinsame Ahne von allem zu sein, der Vater der Dinge.*  
 
 ![tao_04](./assets/pics/tao_04.png)  
 &nbsp;  
 
-Bleiben Sie heutew in einer beliebigen Situation still, statt verbal zu reagieren, und achten Sie auf ihre Gedanken. Beschließen Sie beispielsweise bei einem geselligen Beisammensein oder in einer geschäftlichen Runde, die Leere zu suchen, sie sich in der Stille findet, um sich Ihres unendlichen Selbst bewusst zu werden. Bitten Sie dieses, Sie wissen zu lassen, wann und ob Sie antworten sollen. Wenn Sie merken, wie Ihr weltliches Ego deutet oder urteilt, so beobachten Sie es einfach, ohne es zu kritisieren oder zu verändern. Es werden Ihnen immer mehr Situationen auffallen, in denen nicht zu reagieren sich friedlich und freudig anfühlt. Verweilen Sie stattdessen in der verborgenen, jedoch stets gegenwärtigen Unendlichkeit.  
+Bleiben Sie heute in einer beliebigen Situation still, statt verbal zu reagieren, und achten Sie auf ihre Gedanken. Beschließen Sie beispielsweise bei einem geselligen Beisammensein oder in einer geschäftlichen Runde, die Leere zu suchen, sie sich in der Stille findet, um sich Ihres unendlichen Selbst bewusst zu werden. Bitten Sie dieses, Sie wissen zu lassen, wann und ob Sie antworten sollen. Wenn Sie merken, wie Ihr weltliches Ego deutet oder urteilt, so beobachten Sie es einfach, ohne es zu kritisieren oder zu verändern. Es werden Ihnen immer mehr Situationen auffallen, in denen nicht zu reagieren sich friedlich und freudig anfühlt. Verweilen Sie stattdessen in der verborgenen, jedoch stets gegenwärtigen Unendlichkeit.  
 Vielleicht schreiben Sie sich den folgenden Rat meines Lehrers Nisargadatta Maharaj ab und hängen ihn gut sichtbar auf, damit Sie ihn jeden Tag lesen können:  
 >Weisheit heißt erkennen, dass ich nichts bin,  
 Liebe heißt lernen, dass ich alles bin,  
@@ -185,7 +185,7 @@ und zwischen den beiden bewegt sich mein Leben.
 &nbsp;
 
 ## 5  
-Himmel und Erde sind unvoreingenommen.  
+*Himmel und Erde sind unvoreingenommen.  
 Sie sehen die zehntausend Dinge als Strohhunde.  
 Der Weise ist nicht sentimental,  
 er behandelt sein ganzes Volk wie Strohhunde.  
@@ -203,7 +203,7 @@ je mehr er genutzt wird, desto mehr bringt er hervor.
 
 Halte am Mittelpunkt fest.  
 Der Mensch wurde gemacht, still dazusitzen und  
-die Wahrheit im Innern zu finden.  
+die Wahrheit im Innern zu finden.*  
 
 ![tao_05](./assets/pics/tao_05.png)  
 &nbsp;  
@@ -212,7 +212,7 @@ Geht Ihnen ein Gedanke durch den Kopf, der andere ausschließt, so wollen Sie al
 &nbsp;
 
 ## 6  
-Den Geist, der niemals stirbt  
+*Den Geist, der niemals stirbt  
 nennt man geheimnisvoll Weibliches.  
 Auch wenn es zum ganzen Universum wird,  
 geht seine unbefleckte Reinheit nie verloren.  
@@ -227,13 +227,13 @@ höre ihr Echo in der ganzen Schöpfung.
 Ohne Fehl offenbart sie ihre Gegenwart.  
 Ohne Fehl führt sie zur eigenen Vollkommenheit.  
 Auch wenn sie unsichtbar ist, dauert sie fort,  
-sie wird niemals enden.  
+sie wird niemals enden.*  
 
 ![tao_06](./assets/pics/tao_01.png)  
 &nbsp;
 
 ## 7  
-Der Himmel ist ewig - die Erde von Dauer.  
+*Der Himmel ist ewig - die Erde von Dauer.  
 Weshalb sind Himmel und Erde ewig von Dauer?  
 Sie leben nicht nur für sich selbst.  
 Dies ist das Geheimnis ihrer Dauerhaftigkeit.  
@@ -245,13 +245,13 @@ so ist er von Dauer.
 
 Diene den Bedürfnissen anderer,  
 so werden all deine eigenen Bedürfnisse gestillt.  
-Selbstloses Handeln bringt Erfüllung.  
+Selbstloses Handeln bringt Erfüllung.*  
 
 ![tao_07](./assets/pics/tao_07.png)  
 &nbsp;  
 
 ## 8  
-Das höchste Gut ist wie das Wasser,  
+*Das höchste Gut ist wie das Wasser,  
 das alle Dinge nährt, ohne sich zu bemühen.  
 Es fließt an niedrige Orte, die Menschen verabscheuen.  
 Somit gleicht es dem Tao.  
@@ -266,13 +266,13 @@ Sei zeitgemäß und wähle den richtigen Zeitpunkt.
 Wer in Übereinstimmung mit der Natur lebt,  
 läuft dem Wesen der Dinge nicht zuwider.  
 Er bewegt sich in Harmonie mit dem Augenblick  
-und kennt stets die Wahrheit dessen, was zu tun ist.  
+und kennt stets die Wahrheit dessen, was zu tun ist.*  
 
 ![tao_08](./assets/pics/tao_08.png)  
 &nbsp;
 
 ## 9  
-Immer weiter füllen  
+*Immer weiter füllen  
 ist nicht so gut wie aufhören.  
 Überfüllt, tropft es aus hohler Hand,  
 es ist besser, nicht mehr einzugießen.  
@@ -285,14 +285,14 @@ Plustere dich auf mit Ehre und Stolz,
 und niemand kann dich retten vor dem Fall.  
 
 Zieh dich zurück ist das Werk getan,  
-dies ist der Weg des Himmels.
+dies ist der Weg des Himmels.*
 
 ![tao_09](./assets/pics/tao_02.png)  
 &nbsp;
 
 ## 10  
 
-Kannst du Körper und Seele haben,  
+*Kannst du Körper und Seele haben,  
 das Eine umfassen  
 und Trennung vermeiden?  
 
@@ -312,13 +312,23 @@ führen, ohne Kontrolle zu üben oder zu dominieren.
 
 Wer auf diese Kraft achtet,  
 bringt das Tao in die Welt.  
-Das ist die höchste Tugend.  
+Das ist die höchste Tugend.*  
 
 ![tao_10](./assets/pics/tao_10.png)  
 &nbsp;  
 
-## 11
+## 11  
+*Dreißig Speichen laufen in einer einzigen Nabe zusammen.  
+Vom Loch in der Mitte hängt  
+die Brauchbarkeit des Wagens ab.  
 
+Forme Ton zu einem Gefäß.  
+Der leere Raum darin macht es brauchbar.  
+Brich schöne Türen und Fenster heraus,  
+doch die Leere macht das Zimmer brauchbar.  
+
+Die Brauchbarkeit dessen, was ist,  
+hängt von dem ab, was nicht ist.*  
 
 ![tao_11](./assets/pics/tao_03.png)  
 &nbsp;  

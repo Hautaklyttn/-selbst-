@@ -339,44 +339,44 @@ Der Unterschied zwischen Heiligen und der übrigen Menschheit besteht darin, das
 &nbsp;
 
 ## 12  
-Die fünf Farben machen das Auge blind.  
+*Die fünf Farben machen das Auge blind.  
 Die fünf Töne machen das Ohr taub.  
 Die fünf Gewürze stumpfen den Geschmackssinn ab.  
-Rennen und Jagen machen den Geist der Menschen verrückt.  
+Rennen und Jagen machen den Geist der Menschen verrückt.*  
 
-Energie zum Erlangen seltener Gegenstände zu vergeuden  
-hemmt nur das eigene Wachstum.  
+*Energie zum Erlangen seltener Gegenstände zu vergeuden  
+hemmt nur das eigene Wachstum.*  
 
-Der Meister beobachtet die Welt,  
+*Der Meister beobachtet die Welt,  
 vertraut aber auf seine innere Vision.  
 Er lässt die Dinge kommen und gehen.  
-Er zieht das, was innen ist, dem vor, was außen ist.  
+Er zieht das, was innen ist, dem vor, was außen ist.*W  
 
 ![tao_12](./assets/pics/tao_04.png)  
 &nbsp;  
 
 ## 13  
-Gunst und Ungnade erscheinen erschreckend.  
-Eine hohe Stellung setzt dir sehr zu.  
+*Gunst und Ungnade erscheinen erschreckend.  
+Eine hohe Stellung setzt dir sehr zu.*  
 
-Weshalb sind Gunst und Ungnade erschreckend?  
+*Weshalb sind Gunst und Ungnade erschreckend?  
 Gunst suchen ist erniedrigend:  
 erschreckend, wenn sie erlangt ist,  
-erschreckend, wenn sie verloren geht.  
+erschreckend, wenn sie verloren geht.*  
 
-Weshalb setzt eine hohe Stellung dir sehr zu?  
+*Weshalb setzt eine hohe Stellung dir sehr zu?  
 Wir haben deswegen viele Probleme,  
 weil wir ein Ich haben.  
 Hätten wir kein Ich,  
-welche Schwierigkeiten hätten wir dann?  
+welche Schwierigkeiten hätten wir dann?*  
 
-Das wahre Selbst des Menschen ist ewig,  
+*Das wahre Selbst des Menschen ist ewig,  
 doch er denkt: Ich bin dieser Körper und werde bald sterben.  
 Wenn wir keinen Körper haben, welches Unheil kann uns heimsuchen?  
 Wer sich als alles sieht,  
 taugt, Hüter der Welt zu sein.  
 Wer sich selbst liebt wie alle,  
-taugt, Lehrer der Welt zu sein.  
+taugt, Lehrer der Welt zu sein.*  
 
 ![tao_13](./assets/pics/tao_05.png)  
 &nbsp;  
@@ -385,33 +385,33 @@ Der dreizehnte Spruch besagt klipp und klar: Das Ego und das Bedürfnis, wichtig
 &nbsp;
 
 ## 14  
-Was nicht zu sehen ist, heißt unsichtbar.  
+*Was nicht zu sehen ist, heißt unsichtbar.  
 Was nicht zu hören ist, heißt unhörbar.  
 Was nicht zu halten ist, heißt unfassbar.  
 Diese drei lassen sich nicht bestimmen,  
-dabei verschmelzen sie in eines.  
+dabei verschmelzen sie in eines.*  
 
-Jedes der drei ist zu subtil, um es zu beschreiben.  
+*Jedes der drei ist zu subtil, um es zu beschreiben.  
 Durch Intuition kannst du es sehen,  
 hören  
 und fühlen.  
 Dann sind das Unsichtbare,  
 Unhörbare  
 und Unfassbare  
-als eines da.  
+als eines da.*  
 
-Es geht und bringt keine Dämmerung,  
+*Es geht und bringt keine Dämmerung,  
 es geht unter und bringt keine Dunkelheit,  
 es geht immer, unnennbar, weiter,  
-und kehrt ins Nichts zurück.  
+und kehrt ins Nichts zurück.*  
 
-Nähere dich ihm: da ist kein Anfang.  
+*Nähere dich ihm: da ist kein Anfang.  
 Folge ihm: da ist kein Ende.  
 Du kannst es nicht kennen, aber es sein,  
-lebe gelassen dein Leben.  
+lebe gelassen dein Leben.*  
 
-Entdecken, wie die Dinge stets waren,  
-bringt im Einklang mit dem Weg.  
+*Entdecken, wie die Dinge stets waren,  
+bringt im Einklang mit dem Weg.*  
 
 ![tao_14](./assets/pics/tao_01.png)  
 &nbsp;  
@@ -435,19 +435,19 @@ Wenn sie ausschließlich >>in der Form<< leben, konzentrieren Sie sich darauf, I
 ## 17
 
 
-![tao_15](./assets/pics/tao_01.png)  
+![tao_17](./assets/pics/tao_01.png)  
 &nbsp;  
 
 ## 18
 
 
-![tao_16](./assets/pics/tao_02.png)  
+![tao_18](./assets/pics/tao_02.png)  
 &nbsp;
 
 ## 19
 
 
-![tao_15](./assets/pics/tao_03.png)  
+![tao_19](./assets/pics/tao_03.png)  
 &nbsp;  
 
 ## 20

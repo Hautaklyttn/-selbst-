@@ -121,9 +121,9 @@ zu allem Verstehen.*
 
 ## 2
 *Unter dem Himmel sehen alle Schönheit nur deshalb als schön, weil es Hässliches gibt.  
-Alle erkennen Gutes nur deshalb als gut, weil es Böses gibt.  
+Alle erkennen Gutes nur deshalb als gut, weil es Böses gibt.*  
 
-Sein und Nichtsein erzeugen einander.  
+*Sein und Nichtsein erzeugen einander.  
 Das Schwierige entsteht aus dem Leichten.  
 Lang und kurz bestimmen einander wie hoch und niedrig.  
 Vorher und nachher folgen einander.  
@@ -131,9 +131,9 @@ Daher lebt der Weise offen mit scheinbarer Dualität und paradoxer Einheit.
 Der Weise handelt ohne Mühe und lehrt ohne Worte.  
 Pflegt Dinge, ohne sie zu besitzen,  
 arbeitet, doch nicht gegen Lohn,  
-wetteifert, doch nicht für ein Ergebnis.  
+wetteifert, doch nicht für ein Ergebnis.*  
 
-Wenn das Werk getan ist, ist es vergessen.  
+*Wenn das Werk getan ist, ist es vergessen.  
 Daher währt es ewig.*  
 
 ![tao_02](./assets/pics/tao_02.png)  
@@ -145,13 +145,13 @@ entsteht Streitsucht
 Steht Besitz zu hoch im Kurs,  
 beginnen die Menschen zu stehlen.  
 Begehrenswertes nicht zeigen, so macht man,  
-dass des Volkes Herz nicht wirr wird.  
+dass des Volkes Herz nicht wirr wird.*  
 
-Der Weise herrscht also:  
+*Der Weise herrscht also:  
 Er leert Geist und Herz,  
-er schwächt den Ehrgeiz und stärkt die Knochen.  
+er schwächt den Ehrgeiz und stärkt die Knochen.*  
 
-Übe dich im Nichttun.  
+*Übe dich im Nichttun.  
 Ist das Handeln rein und selbstlos,  
 findet alles seinen vollkommenen Platz.*  
 
@@ -162,14 +162,14 @@ findet alles seinen vollkommenen Platz.*
 *Das Tao ist leer,  
 doch unerschöpflich,  
 bodenlos,  
-der Ahne von allem.  
+der Ahne von allem.*  
 
-In ihm werden scharfe Kanten rund,  
+*In ihm werden scharfe Kanten rund,  
 verschlungene Knoten lösen sich,  
 die Sonne wird weicher durch eine Wolke,  
-der Staub setzt sich.  
+der Staub setzt sich.*  
 
-Es ist verborgen, doch immer da.  
+*Es ist verborgen, doch immer da.  
 Ich weiß nicht, wer es gebar.  
 Es scheint der gemeinsame Ahne von allem zu sein, der Vater der Dinge.*  
 
@@ -188,20 +188,20 @@ und zwischen den beiden bewegt sich mein Leben.
 *Himmel und Erde sind unvoreingenommen.  
 Sie sehen die zehntausend Dinge als Strohhunde.  
 Der Weise ist nicht sentimental,  
-er behandelt sein ganzes Volk wie Strohhunde.  
+er behandelt sein ganzes Volk wie Strohhunde.*  
 
-Der Weise ist wie Himmel und Erde:  
+*Der Weise ist wie Himmel und Erde:  
 ihm ist keiner besonders lieb,  
 noch missbilligt er jemanden.  
 Er gibt und gibt bedingungslos  
-und bietet seine Schätze allen an.  
+und bietet seine Schätze allen an.*  
 
-Zwischen Himmel und Erde  
+*Zwischen Himmel und Erde  
 ist ein Raum wie ein Blasebalg,  
 leer und unerschöpflich,  
-je mehr er genutzt wird, desto mehr bringt er hervor.  
+je mehr er genutzt wird, desto mehr bringt er hervor.*  
 
-Halte am Mittelpunkt fest.  
+*Halte am Mittelpunkt fest.  
 Der Mensch wurde gemacht, still dazusitzen und  
 die Wahrheit im Innern zu finden.*  
 
@@ -217,12 +217,12 @@ nennt man geheimnisvoll Weibliches.
 Auch wenn es zum ganzen Universum wird,  
 geht seine unbefleckte Reinheit nie verloren.  
 Auch wenn es zahllose Formen annimmt,  
-bleibt seine wahre Identität intakt.  
+bleibt seine wahre Identität intakt.*  
 
-Das Tor zum geheimnisvoll Weiblichen  
-nennt man die Wurzel der Schöpfung.  
+*Das Tor zum geheimnisvoll Weiblichen  
+nennt man die Wurzel der Schöpfung.*  
 
-Höre auf ihre Stimme,  
+*Höre auf ihre Stimme,  
 höre ihr Echo in der ganzen Schöpfung.  
 Ohne Fehl offenbart sie ihre Gegenwart.  
 Ohne Fehl führt sie zur eigenen Vollkommenheit.  
@@ -236,14 +236,14 @@ sie wird niemals enden.*
 *Der Himmel ist ewig - die Erde von Dauer.  
 Weshalb sind Himmel und Erde ewig von Dauer?  
 Sie leben nicht nur für sich selbst.  
-Dies ist das Geheimnis ihrer Dauerhaftigkeit.  
+Dies ist das Geheimnis ihrer Dauerhaftigkeit.*  
 
-Deshalb setzt sich der Weise hintan,  
+*Deshalb setzt sich der Weise hintan,  
 so endet er vorne.  
 Er bleibt Zeuge des Lebens,  
-so ist er von Dauer.  
+so ist er von Dauer.*  
 
-Diene den Bedürfnissen anderer,  
+*Diene den Bedürfnissen anderer,  
 so werden all deine eigenen Bedürfnisse gestillt.  
 Selbstloses Handeln bringt Erfüllung.*  
 
@@ -254,16 +254,16 @@ Selbstloses Handeln bringt Erfüllung.*
 *Das höchste Gut ist wie das Wasser,  
 das alle Dinge nährt, ohne sich zu bemühen.  
 Es fließt an niedrige Orte, die Menschen verabscheuen.  
-Somit gleicht es dem Tao.  
+Somit gleicht es dem Tao.*  
 
-Lebe in Übereinstimmung mit der Natur der Dinge.  
+*Lebe in Übereinstimmung mit der Natur der Dinge.  
 Beim Wohnen: bleibe erdnah. Beim Meditieren: geh tief in dein Herz.  
 Im Umgang mit anderen: Sei sanft und gütig.  
 Halte dein Wort.  
 Herrsche gerecht.  
-Sei zeitgemäß und wähle den richtigen Zeitpunkt.  
+Sei zeitgemäß und wähle den richtigen Zeitpunkt.*  
 
-Wer in Übereinstimmung mit der Natur lebt,  
+*Wer in Übereinstimmung mit der Natur lebt,  
 läuft dem Wesen der Dinge nicht zuwider.  
 Er bewegt sich in Harmonie mit dem Augenblick  
 und kennt stets die Wahrheit dessen, was zu tun ist.*  
@@ -275,16 +275,16 @@ und kennt stets die Wahrheit dessen, was zu tun ist.*
 *Immer weiter füllen  
 ist nicht so gut wie aufhören.  
 Überfüllt, tropft es aus hohler Hand,  
-es ist besser, nicht mehr einzugießen.  
+es ist besser, nicht mehr einzugießen.*  
 
-Schärfe das Messer zu oft,  
+*Schärfe das Messer zu oft,  
 und seine Klinge wird bald stumpf.  
 Fülle dein Haus mit Jade und Gold,  
 und es bringt Unsicherheit.  
 Plustere dich auf mit Ehre und Stolz,  
 und niemand kann dich retten vor dem Fall.  
 
-Zieh dich zurück ist das Werk getan,  
+*Zieh dich zurück ist das Werk getan,  
 dies ist der Weg des Himmels.*
 
 ![tao_09](./assets/pics/tao_02.png)  
@@ -294,23 +294,23 @@ dies ist der Weg des Himmels.*
 
 *Kannst du Körper und Seele haben,  
 das Eine umfassen  
-und Trennung vermeiden?  
+und Trennung vermeiden?*  
 
-Kannst du deinen Körper so geschmeidig werden lassen  
+*Kannst du deinen Körper so geschmeidig werden lassen  
 wie den eines neugeborenen Kindes?  
 Kannst du beim Öffnen und Schließen der Himmelspforte  
-die weibliche Rolle spielen?  
+die weibliche Rolle spielen?*  
 
-Kannst du dein Volk lieben  
+*Kannst du dein Volk lieben  
 und dein Reich beherrschen,  
-ohne dich wichtig zu finden?  
+ohne dich wichtig zu finden?*  
 
-Hervorbringen und nähren,  
+*Hervorbringen und nähren,  
 haben, doch nicht besitzen,  
 arbeiten, doch kein Lob erwarten,  
-führen, ohne Kontrolle zu üben oder zu dominieren.  
+führen, ohne Kontrolle zu üben oder zu dominieren.*  
 
-Wer auf diese Kraft achtet,  
+*Wer auf diese Kraft achtet,  
 bringt das Tao in die Welt.  
 Das ist die höchste Tugend.*  
 
@@ -320,20 +320,24 @@ Das ist die höchste Tugend.*
 ## 11  
 *Dreißig Speichen laufen in einer einzigen Nabe zusammen.  
 Vom Loch in der Mitte hängt  
-die Brauchbarkeit des Wagens ab.  
+die Brauchbarkeit des Wagens ab.*  
 
-Forme Ton zu einem Gefäß.  
+*Forme Ton zu einem Gefäß.  
 Der leere Raum darin macht es brauchbar.  
 Brich schöne Türen und Fenster heraus,  
-doch die Leere macht das Zimmer brauchbar.  
+doch die Leere macht das Zimmer brauchbar.*  
 
-Die Brauchbarkeit dessen, was ist,  
+*Die Brauchbarkeit dessen, was ist,  
 hängt von dem ab, was nicht ist.*  
 
 ![tao_11](./assets/pics/tao_03.png)  
 &nbsp;  
 
-## 12
+**Üben Sie täglich die Macht der Stille**  
+Es gibt viele verschiedene Arten, dies auf persönliche Weise zu tun. Meditieren beispielsweise ist ein wunderbares Mittel, Ihnen zu jener Glückseligkeit zu verhelfen, die entsteht, wenn Sie mit Ihrer inneren Leere verbunden sind, mit jenem Ort, an dem Sie den Weg des Tao erfahren. Geloben Sie, sich des >>ortlosen Ortes<< in sich bewusster zu werden, aus dem alle Gedanken entspringen und nach außen fliehen. Finden Sie ihre eigene Weise den Raum in sich zu betreten, der sauber, rein und im Einklang mit der Liebe ist.  
+Der Unterschied zwischen Heiligen und der übrigen Menschheit besteht darin, dass sie liebevolle, reine Überzeugungen haben, wir hingegen nicht. Sie wirken ausschließlich aus ihrem Kern, von wo aus der Weg des Tao unsichtbar ihr körperliches Sein durchströmt. Das ist das erste Ziel, wenn Sie lernen, zu meditieren oder in der Stille zu sein: Ihre Essenz zu bitten, sich zu offenbaren und Sie in der Leere leben zu lassen.
+
+## 12  
 
 
 ![tao_12](./assets/pics/tao_04.png)  

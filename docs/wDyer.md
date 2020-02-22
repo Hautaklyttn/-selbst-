@@ -421,37 +421,164 @@ Wenn sie ausschließlich >>in der Form<< leben, konzentrieren Sie sich darauf, I
 &nbsp;  
 
 ## 15
+Die alten Meister waren tiefgründig und feinsinnig.  
+Ihre Weisheit war so unergründlich,  
+sie lässt sich gar nicht beschreiben.  
+Das Einzige, was wir beschreiben können, ist ihr Erscheinen.  
 
+Vorsichtig wie jemand, der winters einen Bach überquert.  
+Wachsam wie Gefahr witternde Männer.  
+Einfach wie unbehauenes Holz.  
+Hohl wie eine Höhle.  
+Nachgiebig wie schmelzendes Eis.  
+Amorph wie trübes Wasser.  
+
+Doch das trübste Wasser wird klar,  
+wenn es still wird.  
+Aus dieser Ruhe  
+entsteht das Leben.  
+
+Wer das Tao bewahrt, begehrt nicht Fülle.  
+Doch eben weil er nie voll ist, kann er bleiben wie ein verborgener Keim  
+und beeilt sich nicht, frühzeitig zu reifen.  
 
 ![tao_15](./assets/pics/tao_07.png)  
 &nbsp;  
 
 ## 16
+Werde völlig leer.  
+Lass dein Herz in Frieden sein.  
+Sieh, wie im Getümmel weltlichen Kommens und Gehens  
+ein Ende zum Anfang wird.  
 
+Alles erblüht, eins um eins,  
+nur um zum Ursprung zurückzukehren -  
+zu dem, was ist und sein wird.  
+
+Zur Wurzel zurückzukehren heißt Frieden finden.  
+Frieden finden heißt seine Bestimmung erfüllen.  
+Seine Bestimmung erfüllen heißt beständig sein.  
+Das Wissen vom Beständigen nennt man Einsicht.  
+Diesen Kreislauf nicht zu kennen  
+führt zu ewigen Unglück.  
+
+Das Wissen vom Beständigen verleiht Perspektive.  
+Diese Perspektive ist unvoreingenommen.  
+Unvoreingenommenheit ist die höchste Vornehmheit.  
+Die höchste Vornehmheit ist göttlich.  
+
+Da du göttlich bist, wirst du eins mit dem Tao sein.  
+Eins mit dem Tao sein währt ewig.  
+Dieser Weg ist ewig,  
+kein physischer Tod gefärdet ihn.  
 
 ![tao_16](./assets/pics/tao_08.png)  
 &nbsp;
 
 ## 17
+Ist der größte Führer an der Spitze,  
+weiß das Volk kaum, dass er da ist.  
+Darunter steht einer, den sie lieben undloben.  
+Darunter steht einer, den sie fürchten.  
+Darunter steht einer, den sie verachten, dem sie trotzen.  
 
+Vertraut ein Führer niemandem,  
+vertraut ihm niemand.  
+
+Der große Führer redet wenig  
+und nie unüberlegt.  
+Er arbeitet ohne Eigeninteresse  
+und hinterlässt keine Spur.  
+Wenn alles beendet ist, sagt das Volk:  
+"Wir haben es ganz alleine vollbracht."  
 
 ![tao_17](./assets/pics/tao_01.png)  
 &nbsp;  
 
-## 18
+Der Rat im siebzehnten Spruch richtet sich an Anführer jeder Art. Sie können das Wort 'Führer' durch 'Eltern' oder 'Lehrer' ersetzen, dann betrifft es Sie persönlicher. Überdenken Sie, wie Sie Ihr eigenes Vorgehen sehen und nehmen Sie die nötigen Veränderungen vor, um jemand zu werden, der das Leben anderer erhellt und günstig beeinflusst. Erstens müssen Sie im Hintergrund bleiben und achtsamer Beobachter des Geschehens werden. Dann fragen Sie sich, wie Sie ohne Einmischung ein Umfeld schaffen können, das allen zu verantwortungsbewusstem Handeln verhilft.  
+Das Tao rät, möglichst unsichtbar zu bleiben, wenn Sie ein wirklich effizienter Führer sein wollen. [...] Wirklich beflügelnde Führer erzielen Ergebnisse durch das eigene Vorbild. Sie ermutigen andere, Verantwortung zu übernehmen und das Richtige zu tun, jedoch nicht durch Verkünden und Prahlen, wie unanfechtbar ihr Anweisungen sind. Sie schaffen Raum, damit andere sich inspirieren lassen und zu ihrer eigenen Größe finden können. Der größte taoistische Anführer lässt andere stets die eigene Lebensart und Auffassung vom Guten suchen und finden. Ein aufgeklärter Führer betrachtet sich nicht als selbst ernannter Gebieter. Vielmehr erhöht er die Energie seines Umfelds durch eine Sichtweise, die niedere Neigungen auf ein höheres Niveau hebt.  
+&nbsp;
 
+## 18  
+Ist die Größe des Tao da,  
+fließt das Tun aus dem eigenen Herzen.  
+Fehlt die Größe des Tao,  
+kommt das Tun von den Regeln  
+der >>Freundlichkeit und Gerechtigkeit<<.  
+
+Braucht man Regeln für Freundlichkeit und Gerechtigkeit,  
+und handelt man tugendhaft,  
+so ist dies ein sicheres Zeichen für fehlende Tugend.  
+Daher sieht man viel Heuchelei.  
+
+Werden Verwandte uneins,  
+entstehen Frömmigkeit und Andachtsriten.  
+Gerät das Land in Chaos,  
+erscheinen offizielle Getreue,  
+Vaterlandsliebe entsteht.  
 
 ![tao_18](./assets/pics/tao_02.png)  
 &nbsp;
 
-## 19
+## 19  
+Gib Heiligkeit auf, verzichte auf Weisheit,  
+und es wird hundertmal besser für alle sein.  
+Wirf Moral und Gesetze ab,  
+und die Menschen werden das Richtige tun.  
+Wirf Ehrgeiz und Gewinnsucht ab,  
+und es wird keine Diebe geben.  
 
+Das alles sind nur äußere Formen,  
+sie allein reichen nicht aus.  
+
+Wichtiger ist es,  
+die Einfachheit zu sehen,  
+das eigene wahre Wesen zu erkennen,  
+Selbstsucht abzulegen  
+und Wünsche zu zügeln.  
 
 ![tao_19](./assets/pics/tao_03.png)  
 &nbsp;  
 
-## 20
+## 20  
+Gib Gelehrsamkeit auf, und du bist frei von allen Sorgen.  
+Was ist der Unterschied zwischen Ja und Nein?  
+Was ist der Unterschied zwischen Gut und Böse?  
 
+Muss ich fürchten, was andere fürchten?  
+Soll ich Trostlosigkeit fürchten,  
+wenn es Fülle gibt?  
+Sollte ich Dunkelheit fürchten,  
+wenn überall Licht erstrahlt?  
+
+Manche gehen im Frühjahr in den Park und steigen auf Terrassen,  
+nur ich allein lasse mich treiben, weiß nicht, wo ich bin.  
+Wie ein neugeborenes Kind, bevor es das Lachen lernt,  
+bin ich allein, nirgends ein Ort hinzugehen.  
+
+Die meisten haben mehr, als sie brauchen,  
+nur mir allein scheint etwas zu fehlen.  
+Ich habe den Verstand eines Unwissenden  
+in seiner ungetrübten Einfachheit.  
+Ich bin nur ein Gast auf dieser Welt.  
+Wo sich andere abhetzen, um Dinge zu erledigen,  
+nehme ich an, was angeboten wird.  
+Nur ich allein bin anscheinend ein Tor,  
+verdiene wenig, gebe weniger aus.  
+
+Andere streben nach Ruhm.  
+Ich vermeide das Rampenlicht und  
+bleibe lieber allein.  
+Ich bin in der Tat wie ein Dummkopf:  
+kein Verstand, keine Sorgen.  
+
+Ich treibe dahin wie die Wellen des Meeres,  
+richtungslos wie der Wind.  
+
+Jedermann findet seine Nische,  
+nur ich allein bleibe dickköpfig draußen.  
+Doch am meisten unterscheide ich mich von andern im Wissen,  
+Nahrung zu finden bei der großen Mutter.  
 
 ![tao_20](./assets/pics/tao_04.png)  
 &nbsp;

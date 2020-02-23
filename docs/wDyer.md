@@ -582,3 +582,93 @@ Nahrung zu finden bei der großen Mutter.
 
 ![tao_20](./assets/pics/tao_04.png)  
 &nbsp;
+
+Seien Sie sowohl geistig als auch körperlich präsent, in einer Grundhaltung der Wertschätzung und ohne Sehnsucht. Fragen Sie sich nicht mehr, ob Sie das Richtige tun. Vergessen Sie jedes: >>Was ist wenn...?<< und sämtliche Zukunftsziele und ersetzen Sie diese durch die Macht des Augenblicks. Seien Sie hier und denken Sie daran, dies jetzt zu tun, denn in Gedanken schon anderswo zu sein zehrt Ihre wertvolle Gegenwartsmomente auf. Der erleuchtete Weise übt, vollständig im momentanen >>Jetztsein<< seines Lebens aufzugehen.  
+&nbsp;  
+
+## 21  
+Dies ist die größte Tugend: dem Tao nur dem Tao zu folgen.  
+
+Das Tao ist schwer fassbar und nicht zu griefen.  
+Obwohl formlos und nicht zu greifen,  
+bringt es Formen hervor.  
+Obwohl unbestimmt und flüchtig,  
+bringt es Gestalten hervor.  
+Obwohl dunkel und undeutlich,  
+ist es der Geist, die Essenz,  
+der Lensodem alles Dinge.  
+
+Durch alle Zeitalter hindurch wurde sein Name erhalten,  
+um den Anfang aller Dinge in Erinnerung zu rufen.  
+Wie weiß ich um die Art aller Dinge am Anfang?  
+Ich blicke in mein Inneres und sehe, was in mir ist.  
+
+![tao_21](./assets/pics/tao_05.png)  
+&nbsp;
+
+## 22  
+Was flexibel ist, bleibt ungebrochen.  
+Was krumm ist, wird gerade.  
+Was leer ist, wird gefüllt.  
+Wer erschöpft ist, wird erneuert.  
+Wer arm ist, wird bereichert.  
+Wer reich ist, dem wird genommen.  
+Darum umfängt der Weise das Eine.  
+Weil er sich nicht zur Schau stellt,  
+sehen die Menschen sein Licht.  
+Weil er nichts zu beweisen braucht,  
+können sie seinen Worten vertrauen.  
+Weil er nicht weiß, wer er ist,  
+erkennen sie sich in ihm wieder.  
+Weil er kein Ziel im Sinn hat,  
+glückt ihm alles, was er tut.  
+
+Bestimmt trifft der alte Spruch hier zu: das Flexible bleibt ungebrochen.  
+Hast du wahrhaft Ganzheit erlangt,  
+fließt dir alles zu.
+
+![tao_22](./assets/pics/tao_01.png)  
+&nbsp;  
+
+Dieser Spruch macht Sie auf einen zusätzlichen Vorteil aufmerksam: die Ganzheit, die dafür sorgt, dass Ihnen alles zufließt. Das heißt: Wenn Sie Fülle, Wissen, Gesundheit, Liebe und alle anderen Eigenschaften erlangen möchten, die das Tao ausmachen, müssen Sie auch empfänglich dafür sein. Laotse lehrt, dass sie leer sein müssen, um gefüllt zu werden, denn Verhaftungen engen Sie so ein, dass nichts in Ihr bereits volles Selbst eintreten kann. In diesem Sinn leer zu sein bedeutet, nicht voller Überzeugungen, Besitztümer, Ideen zu sein, die vom Ego stimuliert werden, sondern vielmehr *allen* Möglichkeiten gegenüber offen zu bleiben. Dies steht im Einklang mit dem namenlosen Tao: Es engt sich nicht auf eine bestimmte Sicht oder eine einzige Art und Weise ein, wie man etwas zu tun hat. Es belebt alle. Ebenso ist der flexible Mensch allen Möglichkeiten gegenüber offen. Er braucht nichts zu beweisen, weil das Tao  und nicht das Ego am Steuer ist.
+&nbsp;  
+
+## 23
+
+![tao_23](./assets/pics/tao_07.png)  
+&nbsp;
+
+## 24
+
+![tao_24](./assets/pics/tao_08.png)  
+&nbsp;
+
+## 25
+
+![tao_25](./assets/pics/tao_01.png)  
+&nbsp;
+
+## 26
+
+![tao_26](./assets/pics/tao_02.png)  
+&nbsp;
+
+## 27
+
+![tao_27](./assets/pics/tao_03.png)  
+&nbsp;
+
+## 28
+
+![tao_28](./assets/pics/tao_04.png)  
+&nbsp;
+
+## 29
+
+![tao_29](./assets/pics/tao_05.png)  
+&nbsp;
+
+## 30
+
+![tao_30](./assets/pics/tao_01.png)  
+&nbsp;

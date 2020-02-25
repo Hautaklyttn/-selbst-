@@ -282,7 +282,7 @@ und seine Klinge wird bald stumpf.
 Fülle dein Haus mit Jade und Gold,  
 und es bringt Unsicherheit.  
 Plustere dich auf mit Ehre und Stolz,  
-und niemand kann dich retten vor dem Fall.  
+und niemand kann dich retten vor dem Fall.*  
 
 *Zieh dich zurück ist das Werk getan,  
 dies ist der Weg des Himmels.*
@@ -350,7 +350,7 @@ hemmt nur das eigene Wachstum.*
 *Der Meister beobachtet die Welt,  
 vertraut aber auf seine innere Vision.  
 Er lässt die Dinge kommen und gehen.  
-Er zieht das, was innen ist, dem vor, was außen ist.*W  
+Er zieht das, was innen ist, dem vor, was außen ist.*  
 
 ![tao_12](./assets/pics/tao_04.png)  
 &nbsp;  
@@ -421,76 +421,76 @@ Wenn sie ausschließlich >>in der Form<< leben, konzentrieren Sie sich darauf, I
 &nbsp;  
 
 ## 15
-Die alten Meister waren tiefgründig und feinsinnig.  
+*Die alten Meister waren tiefgründig und feinsinnig.  
 Ihre Weisheit war so unergründlich,  
 sie lässt sich gar nicht beschreiben.  
-Das Einzige, was wir beschreiben können, ist ihr Erscheinen.  
+Das Einzige, was wir beschreiben können, ist ihr Erscheinen.*  
 
-Vorsichtig wie jemand, der winters einen Bach überquert.  
+*Vorsichtig wie jemand, der winters einen Bach überquert.  
 Wachsam wie Gefahr witternde Männer.  
 Einfach wie unbehauenes Holz.  
 Hohl wie eine Höhle.  
 Nachgiebig wie schmelzendes Eis.  
-Amorph wie trübes Wasser.  
+Amorph wie trübes Wasser.*  
 
-Doch das trübste Wasser wird klar,  
+*Doch das trübste Wasser wird klar,  
 wenn es still wird.  
 Aus dieser Ruhe  
-entsteht das Leben.  
+entsteht das Leben.*  
 
-Wer das Tao bewahrt, begehrt nicht Fülle.  
+*Wer das Tao bewahrt, begehrt nicht Fülle.  
 Doch eben weil er nie voll ist, kann er bleiben wie ein verborgener Keim  
-und beeilt sich nicht, frühzeitig zu reifen.  
+und beeilt sich nicht, frühzeitig zu reifen.*  
 
 ![tao_15](./assets/pics/tao_07.png)  
 &nbsp;  
 
 ## 16
-Werde völlig leer.  
+*Werde völlig leer.  
 Lass dein Herz in Frieden sein.  
 Sieh, wie im Getümmel weltlichen Kommens und Gehens  
-ein Ende zum Anfang wird.  
+ein Ende zum Anfang wird.*  
 
-Alles erblüht, eins um eins,  
+*Alles erblüht, eins um eins,  
 nur um zum Ursprung zurückzukehren -  
-zu dem, was ist und sein wird.  
+zu dem, was ist und sein wird.*  
 
-Zur Wurzel zurückzukehren heißt Frieden finden.  
+*Zur Wurzel zurückzukehren heißt Frieden finden.  
 Frieden finden heißt seine Bestimmung erfüllen.  
 Seine Bestimmung erfüllen heißt beständig sein.  
 Das Wissen vom Beständigen nennt man Einsicht.  
 Diesen Kreislauf nicht zu kennen  
-führt zu ewigen Unglück.  
+führt zu ewigen Unglück.*  
 
-Das Wissen vom Beständigen verleiht Perspektive.  
+*Das Wissen vom Beständigen verleiht Perspektive.  
 Diese Perspektive ist unvoreingenommen.  
 Unvoreingenommenheit ist die höchste Vornehmheit.  
-Die höchste Vornehmheit ist göttlich.  
+Die höchste Vornehmheit ist göttlich.*  
 
-Da du göttlich bist, wirst du eins mit dem Tao sein.  
+*Da du göttlich bist, wirst du eins mit dem Tao sein.  
 Eins mit dem Tao sein währt ewig.  
 Dieser Weg ist ewig,  
-kein physischer Tod gefärdet ihn.  
+kein physischer Tod gefärdet ihn.*  
 
 ![tao_16](./assets/pics/tao_08.png)  
 &nbsp;
 
 ## 17
-Ist der größte Führer an der Spitze,  
+*Ist der größte Führer an der Spitze,  
 weiß das Volk kaum, dass er da ist.  
 Darunter steht einer, den sie lieben undloben.  
 Darunter steht einer, den sie fürchten.  
-Darunter steht einer, den sie verachten, dem sie trotzen.  
+Darunter steht einer, den sie verachten, dem sie trotzen.*  
 
-Vertraut ein Führer niemandem,  
-vertraut ihm niemand.  
+*Vertraut ein Führer niemandem,  
+vertraut ihm niemand.*  
 
-Der große Führer redet wenig  
+*Der große Führer redet wenig  
 und nie unüberlegt.  
 Er arbeitet ohne Eigeninteresse  
 und hinterlässt keine Spur.  
 Wenn alles beendet ist, sagt das Volk:  
-"Wir haben es ganz alleine vollbracht."  
+"Wir haben es ganz alleine vollbracht."*  
 
 ![tao_17](./assets/pics/tao_01.png)  
 &nbsp;  
@@ -500,63 +500,63 @@ Das Tao rät, möglichst unsichtbar zu bleiben, wenn Sie ein wirklich effiziente
 &nbsp;
 
 ## 18  
-Ist die Größe des Tao da,  
+*Ist die Größe des Tao da,  
 fließt das Tun aus dem eigenen Herzen.  
 Fehlt die Größe des Tao,  
 kommt das Tun von den Regeln  
-der >>Freundlichkeit und Gerechtigkeit<<.  
+der >>Freundlichkeit und Gerechtigkeit<<.*  
 
-Braucht man Regeln für Freundlichkeit und Gerechtigkeit,  
+*Braucht man Regeln für Freundlichkeit und Gerechtigkeit,  
 und handelt man tugendhaft,  
 so ist dies ein sicheres Zeichen für fehlende Tugend.  
-Daher sieht man viel Heuchelei.  
+Daher sieht man viel Heuchelei.*  
 
-Werden Verwandte uneins,  
+*Werden Verwandte uneins,  
 entstehen Frömmigkeit und Andachtsriten.  
 Gerät das Land in Chaos,  
 erscheinen offizielle Getreue,  
-Vaterlandsliebe entsteht.  
+Vaterlandsliebe entsteht.*  
 
 ![tao_18](./assets/pics/tao_02.png)  
 &nbsp;
 
 ## 19  
-Gib Heiligkeit auf, verzichte auf Weisheit,  
+*Gib Heiligkeit auf, verzichte auf Weisheit,  
 und es wird hundertmal besser für alle sein.  
 Wirf Moral und Gesetze ab,  
 und die Menschen werden das Richtige tun.  
 Wirf Ehrgeiz und Gewinnsucht ab,  
-und es wird keine Diebe geben.  
+und es wird keine Diebe geben.*  
 
-Das alles sind nur äußere Formen,  
-sie allein reichen nicht aus.  
+*Das alles sind nur äußere Formen,  
+sie allein reichen nicht aus.*  
 
-Wichtiger ist es,  
+*Wichtiger ist es,  
 die Einfachheit zu sehen,  
 das eigene wahre Wesen zu erkennen,  
 Selbstsucht abzulegen  
-und Wünsche zu zügeln.  
+und Wünsche zu zügeln.*  
 
 ![tao_19](./assets/pics/tao_03.png)  
 &nbsp;  
 
 ## 20  
-Gib Gelehrsamkeit auf, und du bist frei von allen Sorgen.  
+*Gib Gelehrsamkeit auf, und du bist frei von allen Sorgen.  
 Was ist der Unterschied zwischen Ja und Nein?  
-Was ist der Unterschied zwischen Gut und Böse?  
+Was ist der Unterschied zwischen Gut und Böse?*  
 
-Muss ich fürchten, was andere fürchten?  
+*Muss ich fürchten, was andere fürchten?  
 Soll ich Trostlosigkeit fürchten,  
 wenn es Fülle gibt?  
 Sollte ich Dunkelheit fürchten,  
-wenn überall Licht erstrahlt?  
+wenn überall Licht erstrahlt?*  
 
-Manche gehen im Frühjahr in den Park und steigen auf Terrassen,  
+*Manche gehen im Frühjahr in den Park und steigen auf Terrassen,  
 nur ich allein lasse mich treiben, weiß nicht, wo ich bin.  
 Wie ein neugeborenes Kind, bevor es das Lachen lernt,  
-bin ich allein, nirgends ein Ort hinzugehen.  
+bin ich allein, nirgends ein Ort hinzugehen.*  
 
-Die meisten haben mehr, als sie brauchen,  
+*Die meisten haben mehr, als sie brauchen,  
 nur mir allein scheint etwas zu fehlen.  
 Ich habe den Verstand eines Unwissenden  
 in seiner ungetrübten Einfachheit.  
@@ -564,21 +564,21 @@ Ich bin nur ein Gast auf dieser Welt.
 Wo sich andere abhetzen, um Dinge zu erledigen,  
 nehme ich an, was angeboten wird.  
 Nur ich allein bin anscheinend ein Tor,  
-verdiene wenig, gebe weniger aus.  
+verdiene wenig, gebe weniger aus.*  
 
-Andere streben nach Ruhm.  
+*Andere streben nach Ruhm.  
 Ich vermeide das Rampenlicht und  
 bleibe lieber allein.  
 Ich bin in der Tat wie ein Dummkopf:  
-kein Verstand, keine Sorgen.  
+kein Verstand, keine Sorgen.*  
 
-Ich treibe dahin wie die Wellen des Meeres,  
-richtungslos wie der Wind.  
+*Ich treibe dahin wie die Wellen des Meeres,  
+richtungslos wie der Wind.*  
 
-Jedermann findet seine Nische,  
+*Jedermann findet seine Nische,  
 nur ich allein bleibe dickköpfig draußen.  
 Doch am meisten unterscheide ich mich von andern im Wissen,  
-Nahrung zu finden bei der großen Mutter.  
+Nahrung zu finden bei der großen Mutter.*  
 
 ![tao_20](./assets/pics/tao_04.png)  
 &nbsp;
@@ -587,27 +587,27 @@ Seien Sie sowohl geistig als auch körperlich präsent, in einer Grundhaltung de
 &nbsp;  
 
 ## 21  
-Dies ist die größte Tugend: dem Tao nur dem Tao zu folgen.  
+*Dies ist die größte Tugend: dem Tao nur dem Tao zu folgen.*  
 
-Das Tao ist schwer fassbar und nicht zu griefen.  
+*Das Tao ist schwer fassbar und nicht zu griefen.  
 Obwohl formlos und nicht zu greifen,  
 bringt es Formen hervor.  
 Obwohl unbestimmt und flüchtig,  
 bringt es Gestalten hervor.  
 Obwohl dunkel und undeutlich,  
 ist es der Geist, die Essenz,  
-der Lensodem alles Dinge.  
+der Lensodem alles Dinge.*
 
-Durch alle Zeitalter hindurch wurde sein Name erhalten,  
+*Durch alle Zeitalter hindurch wurde sein Name erhalten,  
 um den Anfang aller Dinge in Erinnerung zu rufen.  
 Wie weiß ich um die Art aller Dinge am Anfang?  
-Ich blicke in mein Inneres und sehe, was in mir ist.  
+Ich blicke in mein Inneres und sehe, was in mir ist.*  
 
 ![tao_21](./assets/pics/tao_05.png)  
 &nbsp;
 
 ## 22  
-Was flexibel ist, bleibt ungebrochen.  
+*Was flexibel ist, bleibt ungebrochen.  
 Was krumm ist, wird gerade.  
 Was leer ist, wird gefüllt.  
 Wer erschöpft ist, wird erneuert.  
@@ -621,11 +621,11 @@ können sie seinen Worten vertrauen.
 Weil er nicht weiß, wer er ist,  
 erkennen sie sich in ihm wieder.  
 Weil er kein Ziel im Sinn hat,  
-glückt ihm alles, was er tut.  
+glückt ihm alles, was er tut.*  
 
-Bestimmt trifft der alte Spruch hier zu: das Flexible bleibt ungebrochen.  
+*Bestimmt trifft der alte Spruch hier zu: das Flexible bleibt ungebrochen.  
 Hast du wahrhaft Ganzheit erlangt,  
-fließt dir alles zu.
+fließt dir alles zu.*
 
 ![tao_22](./assets/pics/tao_01.png)  
 &nbsp;  

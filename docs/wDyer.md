@@ -633,17 +633,71 @@ fließt dir alles zu.*
 Dieser Spruch macht Sie auf einen zusätzlichen Vorteil aufmerksam: die Ganzheit, die dafür sorgt, dass Ihnen alles zufließt. Das heißt: Wenn Sie Fülle, Wissen, Gesundheit, Liebe und alle anderen Eigenschaften erlangen möchten, die das Tao ausmachen, müssen Sie auch empfänglich dafür sein. Laotse lehrt, dass sie leer sein müssen, um gefüllt zu werden, denn Verhaftungen engen Sie so ein, dass nichts in Ihr bereits volles Selbst eintreten kann. In diesem Sinn leer zu sein bedeutet, nicht voller Überzeugungen, Besitztümer, Ideen zu sein, die vom Ego stimuliert werden, sondern vielmehr *allen* Möglichkeiten gegenüber offen zu bleiben. Dies steht im Einklang mit dem namenlosen Tao: Es engt sich nicht auf eine bestimmte Sicht oder eine einzige Art und Weise ein, wie man etwas zu tun hat. Es belebt alle. Ebenso ist der flexible Mensch allen Möglichkeiten gegenüber offen. Er braucht nichts zu beweisen, weil das Tao  und nicht das Ego am Steuer ist.
 &nbsp;  
 
-## 23
+## 23  
+*Wenig reden ist natürlich:  
+Stürmische Winde wehen nicht den ganzen Morgen,  
+ein Platzregen dauert keinen ganzen Tag.  
+Wer wirkt dies? Himmel und Erde.*  
+
+*Das sind nur übertgriebene, erwzungene Wirkungen,  
+deswegen sind sie nicht von Dauer.  
+Wenn Himmel und Erde etwas Erzwungenes nicht aufrechterhalten können,  
+wie viel weniger dann der Mensch?*  
+
+*Wer dem Weg folgt,  
+wird eins mit dem Weg.  
+Wer der Güte folgt,  
+wird eins mit der Güte.  
+Wer vom Weg und der Güte abkommt,
+wird eins mit Misserfolg.*  
+
+*Stimmst du mit dem Weg überein,
+durchströmt dich seine Kraft.  
+Dein Tun wird naturnah,  
+deine Art die Art des Himmels.*  
+
+*Öffne dich dem Tao  
+und vertraue auf deine natürlichen Reaktionen,  
+dann fügt sich eins ins andere.*  
 
 ![tao_23](./assets/pics/tao_07.png)  
 &nbsp;
 
-## 24
+**Ändern Sie Ihr Leben, indem Sie auf Ihre Fähigkeit vertrauen, ganz natürlich auf Ihre Lebensumstände zu reagieren**  
+
+Das könnte bedeuten, dass Sie sich zuerst freundlich beobachten, statt sofort zu reagieren. Wenn Sie die Neigung verspüren, Ihre Meinung zu sagen, so befragen Sie eben diesen Drang darüber, was er *eigentlich* will.  
+Ihr Körper weiß, wie er in Frieden sein und die Stürme des Lebens aushalten kann, Sie aber müssen ihn auch spüren lassen, dass Ihnen seine Hinweise willkommen sind. Seien Sie still und gestatten Sie sich, im Einklang mit dem schöpferischen Tao zu sein. Öffnen Sie sich seiner Macht.  
+&nbsp;  
+
+## 24  
+*Wer auf Zehenspitzen steht, steht nicht sicher.  
+Wer vorauseilt, kommt nicht weit.*  
+
+*Wer zu glänzen versucht, beweist keine Erleuchtung.  
+Wer sich selber brüstet, vollbringt keine Leistung.  
+Wer selbstgefällig ist, wird nicht geachtet.  
+Wer prahlt, hält nicht durch.*  
+
+*So zu handeln ist abstoßend, verabscheuungswürdig.  
+Es sind überflüssige Ausschweifungen.  
+Sie sind wie Magenschmerzen,  
+eine Geschwulst im Körper.*  
+
+*Auf dem Weg des Tao,  
+müssen genau diese Dinge  
+ausgerissen, weggeworfen und zurückgelassen werden.*  
 
 ![tao_24](./assets/pics/tao_08.png)  
 &nbsp;
 
+[...] Gehen Sie den Weg des Tao, indem Sie lieber geben als nehmen und für andere sorgen, ohne etwas dafür zu verlangen. Nehmen Sie den Drang, sich zu brüsten und Anerkennung zu bekommen, als Unkraut auf Ihrem Weg wahr. Sich wichtig finden und als besonders einschätzen, beispielsweise wegen künstlerischer Gaben, heißt den Weg des Ego zu gehen. Den Weg des Tao zu gehen bedeutet, dass Sie die Hände schätzen, die es Ihnen ermöglichen, eine Skulptur zu schaffen.  
+Laotse rät Ihnen, den Weg des Tao ohne den Egowunsch, für Bemühungen und Leistungen anerkannt zu werden, wie folgt zu beschreiten:  
+**Ändern Sie Ihr Leben und beschließen Sie bewusst, dankbar zu sein.**  
+&nbsp;  
+
 ## 25
+
+
 
 ![tao_25](./assets/pics/tao_01.png)  
 &nbsp;

@@ -696,33 +696,225 @@ Laotse rät Ihnen, den Weg des Tao ohne den Egowunsch, für Bemühungen und Leis
 &nbsp;  
 
 ## 25
+*Es gab etwas Formloses und Vollkommenes,  
+bevor das Universum entstand.  
+Gelassen ist es und leer.  
+Allein. Unveränderlich.  
+Grenzenlos. Ewig gegenwärtig.  
+Es ist die Mutter des Universums.  
+In Ermangelung eines besseren Namens,  
+nenne ich es das Tao.*  
 
+*Ich nenne es groß.  
+Groß ist grenzenlos;  
+grenzenlos ist ewig im Fluss;  
+ewig im Fluss kehrt es ständig zurück.*  
 
+*Daher ist der Weg groß,  
+der Himmel groß,  
+die Erde groß,  
+der Mensch groß.*  
+
+*Deshalb, um die Menschheit zu kennen:  
+Verstehe die Erde.  
+Um die Erde zu kennen:  
+Verstehe den Himmel.  
+Um den Himmel zu kennen:  
+Verstehe den Weg.  
+Um den Weg zu kennen:  
+Verstehe das Große in dir.*
 
 ![tao_25](./assets/pics/tao_01.png)  
 &nbsp;
 
-## 26
+[...] Die sind nicht der Körper, den Sie vorübergehend bewohnen und der sich auf dem Rückweg nach dem Nirgendwo befindet, aus dem er kam. Sie sind reine Größe - genau die Größe, die alles Leben erschafft. Halten Sie sich diesen Gedanken immer vor Augen, dann werden Sie die entsprechenden Schöpfungskräfte zu sich hinziehen. Die richtigen Menschen werden erscheinen, diejenigen Ereignisse, die Sie sich wünschen, treffen ein und die nötigen Geldmittel tauchen auf. Das liegt daran, dass Größe die Tendenz hat, noch mehr Größe anzuziehen. Wenn Sie dagegen davon überzeugt sind, den Ansprüchen nicht zu genügen, dann wird dieser Glaube Sie tatsächlich unzulänglich machen.  
+&nbsp;  
+
+## 26  
+*Das Schwere ist des Leichten Wurzel.  
+Das Stille ist der Unruhe Herr.*  
+
+*In dieser Erkenntnis  
+ist der Erfolgreiche  
+im Gleichgewicht und zentriert  
+unmitten all seines Tuns.  
+Umgeben von Reichtum,  
+wankt er nicht.*  
+
+*Weshalb sollte der Herr des Landes  
+herumflitzen wie ein Narr?  
+Lässt du dich hierhin und dorthin wehen,  
+verlierst du die Verbindung mit deinen Wurzeln.  
+Unruhig sein heißt die Herrschaft über sich verlieren.*  
 
 ![tao_26](./assets/pics/tao_02.png)  
-&nbsp;
+&nbsp;  
 
-## 27
+In diesem Kapitel des Tao Te King wird Ihnen geraten, ungeachtet des Geschehens um Sie herum gelassen zu bleiben. Außerdem wird Ihnen gesagt, ein wahrer Meister wisse, dass die Fähigkeit, Ruhe zu bewahren, stets im Inneren wohnt. Aus dieser Sicht brauchen Sie nicht anderen die Verantwortung zuzuschieben, wie Sie sich fühlen. Auch wenn Sie möglicherweise in einer Umgebung leben, in der Schuldzuweisungen grassieren, werden Sie zu Ihren Gefühlen und Handlungen stehen. Sie werden wissen, dass nicht die Umstände Ihren seelischen Zustand bestimmen, denn diese Macht liegt in Ihnen. Wenn Sie auch mitten im Chaos innerlich friedlich bleiben, ändert sich Ihr Leben.  
+&nbsp;  
+
+## 27  
+*Ein Kenner der Wahrheit  
+reist, ohne eine Spur zu hinterlassen,  
+spricht, ohne zu schaden,  
+gibt, ohne abzurechnen.  
+Die Tür, die er schließt, lässt sich nicht öffnen,  
+obschon sie kein Schloss hat.  
+Die Schlinge, die er knüpft, lässt sich nicht lösen,  
+obschon keine Schnur verwendet wurde.*  
+
+*Sei weise und hilf allen Wesen unvoreingenommen,  
+verlasse niemanden.  
+Vergeude keine Gelegenheit.  
+Dies nennt man dem Licht folgen.*  
+
+*Was ist ein guter Mensch anderes als eines Schlechten Lehrer?  
+Was ist ein schlechter Mann anderes als eines Guten Aufgabe?  
+Wenn der Lehrer nicht geachtet  
+und nicht für den Schüler gesorgt wird,  
+entsteht Verwirrung, wie klug man auch sein mag.  
+Dies ist das große Geheimnis.*  
 
 ![tao_27](./assets/pics/tao_03.png)  
 &nbsp;
 
-## 28
+## 28  
+*Kenne die Kraft des Mannes,  
+doch behalte die Fürsorge der Frau.  
+Sei ein Tal unter dem Himmel.  
+Tust du dies, wird die ewige Tugend  
+nicht verblassen.  
+Du wirst wieder wie ein kleines Kind.*  
+
+*Kenne das Weiße,  
+halte dich an das Schwarze,  
+und sei ein Leitbild für die Welt.  
+Das Leitbild der Welt sein heißt  
+stets den Pfad der Tugend gehen  
+ohne Fehltritt,  
+und zurückkehren ins Unendliche.*  
+
+*Wer Glanz versteht,  
+sich aber an Demut hält,  
+handelt im Einklang mit der ewigen Macht.  
+Brunnen der Welt sein heißt,  
+das reichliche Leben der Tugend führen.*  
+
+*Wird das Ungeformte zu Gegenständen geformt,  
+gehen seine ursprünglichen Eigenschaften verloren.  
+Wenn du deine ursprünglichen Eigenschaften beibehälst,  
+kannst du alles beherrschen.  
+Der beste Herrscher herrscht wahrlich am wenigsten.*  
 
 ![tao_28](./assets/pics/tao_04.png)  
 &nbsp;
 
-## 29
+## 29  
+*Glaubst du, du könntest das UIniversum übernehmen und verbessern?  
+Ich glaube nicht, dass das geht.*  
+
+*Alles unter dem Himmel ist ein heiliges Gefäß und lässt sich nicht  
+beeinflussen.  
+Es beeinflussen zu wollen führt zum Untergang.  
+Nach etwas greifen zu wollen führt zu Verlust.*  
+
+*Lass dein Leben sich natürlich entfalten.  
+Wisse, dass auch dieses ein Gefäß der Vollkommenheit ist.  
+Ebenso wie du ein- und ausatmest,  
+gibt es eine Zeit, vorne zu sein  
+und eine Zeit, hinten zu sein;  
+eine Zeit, in Bewegung zu sein  
+und eine Zeit zu ruhen;  
+eine Zeit, kraftvoll zu sein  
+und eine Zeit erschöpft zu sein;  
+eine Zeit, sicher zu sein  
+und eine Zeit, in Gefahr zu sein.*  
+
+*Für den Weisen  
+bewegt sich das ganze Leben hin zur Vollkommenheit,  
+was also braucht er  
+das Übermäßige, Übertriebene oder Extreme?*  
 
 ![tao_29](./assets/pics/tao_05.png)  
 &nbsp;
 
-## 30
+Stellen Sie bewusst ein Lernprogramm der Hingabe und Zulassens zusammen, und lassen Sie alle in Ihrer Umgebung tun, was sie glauben, tun zu müssen. Sich-Ergeben ist ein geistiger Vorgang: Es bedeutet, sich für einen Sekundenbruchteil im Vorgang des Urteilens oder im Fühlen von Frustration zu stoppen und an Ort und Stelle ein kurzes Gespräch mit sich selbst zu führen. Rufen Sie sich einfach ins Gedächtnis, dass Sie einen Schritt zurüchtreten und Zeuge statt Hauptfigur sein wollen. Das können Sie tun, indem Sie dem von Ihnen beurteilten Gefühl eine Zuflucht anbieten. Laden Sie die göttliche Naturordnung ein und lassen Sie, was Sie erleben, einfach ohne Kritik oder Kontrolle zu. Das ist der Weg der Mitte. Stellen Sie sich das Bedürfnis nach Kontrolle als Alarmsignal vor, das Sie daran erinnert, das Tao frei durch Ihr Leben strömen zu lassen. Zuerst mag Ihr Ego-Geist wohl laut über die Vorstellung spotten, das Tao sei für die vollkommene Entfaltung aller Dinge zuständig. Es liegt bei Ihnen einzusehen, dass die Vorstellung, das Ego könne das Leben kontrollieren, eine Illusion ist.
+&nbsp;  
 
-![tao_30](./assets/pics/tao_01.png)  
-&nbsp;
+## 30
+*Wer Menschenführer im Umgang mit dem Leben leiten will,  
+warnt sie vor Waffengewalt zum Erobern.  
+Waffen wenden sich oft gegen den, der sie einsetzt.*  
+
+*Wo Heere lagern,  
+bietet die Natur nichts als Gestrüpp und Dornen.  
+Nach einer großen Schlacht  
+ist das Land verflucht, die Ernte bleibt aus,  
+die Erde ist entkleidet ihrer Mutterschaft.*  
+
+*Hast du ein Ziel erreicht,  
+darfst du deinen Erfolg nicht zur Schau stellen,  
+darfst nicht prahlen mit deinem Können,  
+nicht stolz sein.  
+Du solltest eher bedauern, dass du  
+den Krieg nicht verhindern konntest.*  
+
+*Denk nie daran, andere mit Gewalt zu besiegen.  
+Was sich mit Gewalt anstrengt,  
+verfällt bald.  
+Es ist nicht auf den Weg abgestimmt.  
+Da es nicht auf den Weg abgestimmt ist,  
+kommt sein Ende allzu bald.*  
+
+![tao_30](./assets/pics/tao_07.png)  
+&nbsp;  
+
+## 31  
+
+![tao_31](./assets/pics/tao_08.png)  
+&nbsp;  
+
+## 32  
+
+![tao_32](./assets/pics/tao_01.png)  
+&nbsp;  
+
+## 33  
+
+![tao_33](./assets/pics/tao_02.png)  
+&nbsp;  
+
+## 34  
+
+![tao_34](./assets/pics/tao_03.png)  
+&nbsp;  
+
+## 35  
+
+![tao_35](./assets/pics/tao_04.png)  
+&nbsp;  
+
+## 36  
+
+![tao_36](./assets/pics/tao_05.png)  
+&nbsp;  
+
+## 37  
+
+![tao_37](./assets/pics/tao_07.png)  
+&nbsp;  
+
+## 38  
+
+![tao_38](./assets/pics/tao_08.png)  
+&nbsp;  
+
+## 39  
+
+![tao_39](./assets/pics/tao_01.png)  
+&nbsp;  
+
+## 40  
+
+![tao_40](./assets/pics/tao_02.png)  
+&nbsp;  

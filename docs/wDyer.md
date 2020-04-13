@@ -727,12 +727,12 @@ Verstehe das Große in dir.*
 ![tao_25](./assets/pics/tao_01.png)  
 &nbsp;
 
-[...] Die sind nicht der Körper, den Sie vorübergehend bewohnen und der sich auf dem Rückweg nach dem Nirgendwo befindet, aus dem er kam. Sie sind reine Größe - genau die Größe, die alles Leben erschafft. Halten Sie sich diesen Gedanken immer vor Augen, dann werden Sie die entsprechenden Schöpfungskräfte zu sich hinziehen. Die richtigen Menschen werden erscheinen, diejenigen Ereignisse, die Sie sich wünschen, treffen ein und die nötigen Geldmittel tauchen auf. Das liegt daran, dass Größe die Tendenz hat, noch mehr Größe anzuziehen. Wenn Sie dagegen davon überzeugt sind, den Ansprüchen nicht zu genügen, dann wird dieser Glaube Sie tatsächlich unzulänglich machen.  
+[...] Sie sind nicht der Körper, den Sie vorübergehend bewohnen und der sich auf dem Rückweg nach dem Nirgendwo befindet, aus dem er kam. Sie sind reine Größe - genau die Größe, die alles Leben erschafft. Halten Sie sich diesen Gedanken immer vor Augen, dann werden Sie die entsprechenden Schöpfungskräfte zu sich hinziehen. Die richtigen Menschen werden erscheinen, diejenigen Ereignisse, die Sie sich wünschen, treffen ein und die nötigen Geldmittel tauchen auf. Das liegt daran, dass Größe die Tendenz hat, noch mehr Größe anzuziehen. Wenn Sie dagegen davon überzeugt sind, den Ansprüchen nicht zu genügen, dann wird dieser Glaube Sie tatsächlich unzulänglich machen.  
 &nbsp;  
 
 ## 26  
 *Das Schwere ist des Leichten Wurzel.  
-Das Stille ist der Unruhe Herr.*  
+Die Stille ist der Unruhe Herr.*  
 
 *In dieser Erkenntnis  
 ist der Erfolgreiche  
@@ -810,11 +810,10 @@ Der beste Herrscher herrscht wahrlich am wenigsten.*
 &nbsp;
 
 ## 29  
-*Glaubst du, du könntest das UIniversum übernehmen und verbessern?  
+*Glaubst du, du könntest das Universum übernehmen und verbessern?  
 Ich glaube nicht, dass das geht.*  
 
-*Alles unter dem Himmel ist ein heiliges Gefäß und lässt sich nicht  
-beeinflussen.  
+*Alles unter dem Himmel ist ein heiliges Gefäß und lässt sich nicht beeinflussen.  
 Es beeinflussen zu wollen führt zum Untergang.  
 Nach etwas greifen zu wollen führt zu Verlust.*  
 
@@ -838,7 +837,7 @@ das Übermäßige, Übertriebene oder Extreme?*
 ![tao_29](./assets/pics/tao_05.png)  
 &nbsp;
 
-Stellen Sie bewusst ein Lernprogramm der Hingabe und Zulassens zusammen, und lassen Sie alle in Ihrer Umgebung tun, was sie glauben, tun zu müssen. Sich-Ergeben ist ein geistiger Vorgang: Es bedeutet, sich für einen Sekundenbruchteil im Vorgang des Urteilens oder im Fühlen von Frustration zu stoppen und an Ort und Stelle ein kurzes Gespräch mit sich selbst zu führen. Rufen Sie sich einfach ins Gedächtnis, dass Sie einen Schritt zurüchtreten und Zeuge statt Hauptfigur sein wollen. Das können Sie tun, indem Sie dem von Ihnen beurteilten Gefühl eine Zuflucht anbieten. Laden Sie die göttliche Naturordnung ein und lassen Sie, was Sie erleben, einfach ohne Kritik oder Kontrolle zu. Das ist der Weg der Mitte. Stellen Sie sich das Bedürfnis nach Kontrolle als Alarmsignal vor, das Sie daran erinnert, das Tao frei durch Ihr Leben strömen zu lassen. Zuerst mag Ihr Ego-Geist wohl laut über die Vorstellung spotten, das Tao sei für die vollkommene Entfaltung aller Dinge zuständig. Es liegt bei Ihnen einzusehen, dass die Vorstellung, das Ego könne das Leben kontrollieren, eine Illusion ist.
+Stellen Sie bewusst ein Lernprogramm der Hingabe und Zulassens zusammen, und lassen Sie alle in Ihrer Umgebung tun, was sie glauben, tun zu müssen. Sich-Ergeben ist ein geistiger Vorgang: Es bedeutet, sich für einen Sekundenbruchteil im Vorgang des Urteilens oder im Fühlen von Frustration zu stoppen und an Ort und Stelle ein kurzes Gespräch mit sich selbst zu führen. Rufen Sie sich einfach ins Gedächtnis, dass Sie einen Schritt zurüchtreten und Zeuge statt Hauptfigur sein wollen. Das können Sie tun, indem Sie dem von Ihnen beurteilten Gefühl eine Zuflucht anbieten. Laden Sie die göttliche Naturordnung ein und lassen Sie, was Sie erleben, einfach ohne Kritik oder Kontrolle zu. Das ist der Weg der Mitte. Stellen Sie sich das Bedürfnis nach Kontrolle als Alarmsignal vor, das Sie daran erinnert, das Tao frei durch Ihr Leben strömen zu lassen. Zuerst mag Ihr Ego-Geist wohl laut über die Vorstellung spotten, das Tao sei für die vollkommene Entfaltung aller Dinge zuständig. Es liegt bei Ihnen einzusehen, dass die Vorstellung, das Ego könne das Leben kontrollieren, eine Illusion ist.  
 &nbsp;  
 
 ## 30
@@ -870,51 +869,295 @@ kommt sein Ende allzu bald.*
 &nbsp;  
 
 ## 31  
+*Waffen sind Werkzeuge der Gewalt.  
+Alle Anständigen verabscheuen sie.  
+Daher verwenden Nachfolger des Tao sie nie.*  
+
+*Waffen dienen dem Bösen.  
+Sie sind Werkzeuge derer, die sich der weisen Regel widerstzen.  
+Setze sie nur im Notfall ein.  
+Denn Frieden und Ruhe sind dem Herzen des Anständigen am liebsten,  
+für ihn ist sogar ein Sieg kein Grund zur Freude.*  
+
+*Wer den Sieg schön findet,  
+will töten,  
+und jemand, der töten will,  
+wird nie über die Welt obsiegen.*  
+
+*Es ist ein gutes Zeichen, wenn sich des Menschen höhere Natur zeigt,  
+ein schlechtes Zeichen, zeigt sich seine niedere Natur.*  
+
+*Das Abschlachten von Menschenmassen  
+bringt Kummer und Leid.  
+Jeder Sieg ist eine Beerdigung.  
+Wenn du einen Krieg gewinnst,  
+feierst du mit Trauern.*  
 
 ![tao_31](./assets/pics/tao_08.png)  
 &nbsp;  
 
 ## 32  
+*Das ewige Tao hat keinen Namen.  
+Obschon es einfach und subtil ist,  
+kann niemand in der Welt es meistern.*  
+
+*Wenn Könige und Herren sie sich nutzbar machen könnten,  
+würden die zehntausend Dinge natürlich gehorchen.  
+Himmel und Erde würden sich freuen  
+mit dem Tropfen süßen Taus.  
+Alle würden harmonisch leben,  
+nicht durch offizielle Verordnung,  
+sondern dank eigener Güte.*  
+
+*Ist das Ganze zerteilt, brauchen die Teile Namen.  
+Es gibt schon Namen genug;  
+wisse, wann du aufhören musst.  
+Wisse, dann die Vernunft Grenzen setzt,  
+um Gefahren zu vermeiden.*  
+
+*Flüsse und Ströme werden aus dem Meer geboren,  
+die ganze Schöpfung wird aus dem Tao geboren.  
+Wie alles Wasser zurückfliesst, um Meer zu werden,  
+fließt die ganze Schöpfung zurück, um Tao zu werden.*  
 
 ![tao_32](./assets/pics/tao_01.png)  
 &nbsp;  
 
 ## 33  
+<span style="color:red ">Wer andere versteht, hat Wissen;</span>  
+<span style="color:red ">wer sich selber versteht, hat Weisheit.</span>  
+<span style="color:red ">Andere beherrschen erfordert Kraft;</span>  
+<span style="color:red ">sich selbst beherrschen erfordert Stärke.</span>  
+
+<span style="color:red ">Wenn du begreifst, dass du genug  hast,</span>  
+<span style="color:red ">bist du wahrhaft reich.</span>  
+
+<span style="color:red ">Wer sich seiner Stellung hingibt,</span>  
+<span style="color:red ">lebt bestimmt lange.</span>  
+<span style="color:red ">Wer sich dem Tao hingibt,</span>  
+<span style="color:red ">lebt bestimmt ewig.</span>  
 
 ![tao_33](./assets/pics/tao_02.png)  
 &nbsp;  
 
 ## 34  
+*Der große Weg ist universell,  
+er lässt sich auf links oder rechts anwenden.  
+Das Leben aller Wesen hängt von ihm ab,  
+dennoch ergreift er nicht Besitz von ihnen.*  
+
+*Er erreicht sein Ziel,  
+erhebt jedoch keinen Anspruch für sich.  
+Er umfasst alle Geschöpfe wie der Himmel,  
+doch er beherrscht nicht.*  
+
+*Alle Dinge kehren zu ihm nach Hause zurück,  
+aber er spielt sich nicht über sie auf.  
+Daher nennt man ihn >>groß<<.*  
+
+*Der Weise ahmt diese Haltung nach:  
+Da er keine Größe beansprucht,  
+erlangt er Größe.*  
 
 ![tao_34](./assets/pics/tao_03.png)  
 &nbsp;  
 
 ## 35  
+*Alle Menschen kommen zu ihm,  
+der sich an das eine hält.  
+Sie strömen ihm zu und erleiden keinen Schaden,  
+denn in ihm finden sie Frieden, Sicherheit und Glück.*  
+
+*Musik und Essen sind vorübergehende Freuden,  
+doch lassen sie Menschen anhalten.  
+Wie fade und schal sind die Dinge der Welt,  
+mit dem Tao verglichen!*  
+
+*Wenn du es suchst, ist nichts zu sehen.  
+Wenn du darauf horchst, ist nichts zu hören.  
+Wenn du es anwendest, ist es unerschöpflich.*  
 
 ![tao_35](./assets/pics/tao_04.png)  
 &nbsp;  
 
 ## 36  
+*Solltest du etwas zurückhalten wollen,  
+so musst du es absichtlich sich ausdehnen lassen.  
+Solltest du etwas schwächen wollen,  
+so musst du es absichtlich stark werden lassen.  
+Solltest du etwas ausräumen wollen,  
+so musst du es absichtlich erblühen lassen.  
+Solltest du etwas wegnehmen wollen,  
+so musst du ihm absichtlich Zugang verschaffen.*  
+
+*Die Lektion hierhin lautet:  
+Weisheit der Verborgenheit.  
+Das Sanfte überdauert das Starke.  
+Das Verborgene überdauert das Offensichtliche.*
+
+*Der Fisch kann nicht aus den Tiefen des Wassers steigen,  
+und die Waffen eines Landes sollen nicht zur Schau gestellt werden.*  
 
 ![tao_36](./assets/pics/tao_05.png)  
 &nbsp;  
 
+**Streben sich durch Wahrnehmen von Gegensätzen nach Erkenntnis des Einsseins.**  
+Geben sie sich alle Mühe, innerlich in der Einheit zu bleiben. Sind Sie zum Beispiel müde, so erinnern Sie sich daran, dass Sie auch wissen, wie es sich anfühlt, ausgeruht zu sein. Nehmen Sie auch die gegenteilige Empfindung wahr, um beide gleichzeitig zu kennen. Tun Sie dies mit jeden Gefühl: Wenn Sie sich ungeliebt fühlen oder deprimiert, wenn Sie sich als schwach, eifersüchtig oder sonst etwas empfinden, so befindet sich auch der Gegenpol dessen, was Sie jetzt durchmachen, in Ihrem Erfahrungsschatz. Suchen Sie sofort das gegenteilige Gefühl und verbinden Sie sich innerlich damit. Daraus entsteht das ausgeglichene Gefühl, in Frieden mit sich zu sein. Dies bedeutet Einssein: Sie nehmen die Extreme in sich auf und setzen Ihren Geist dazu ein, so zu sein wie das Tao, das nie irgendetwas entzweireißt. Wie kann man Einheit auseinanderbrechen? Könnte man sie aufspalten, wäre sie nicht mehr da.  
+&nbsp;  
+
 ## 37  
+*Das Tao tut nichts,  
+und lässt nichts ungetan.*  
+
+*Könnten sich Mächtige  
+in ihm zentrieren,  
+verwandelt sich die ganze Welt von selbst  
+in ihrem natrülichen Rhythmus.*  
+
+*Wenn das Leben einfach ist,  
+fallen Vortäuschungen weg,  
+die Wesensessenz schimmert durch.*  
+
+*Durch Nichtwollen entsteht Ruhe,  
+und die Welt richtet sich auf.  
+Wo Wille ist,  
+findet jeder den Anker des Weltalls in sich.*  
 
 ![tao_37](./assets/pics/tao_07.png)  
 &nbsp;  
 
 ## 38  
+<span style="color:red ">Ein wahrhaft guter Mensch ist sich seiner Güte nicht bewusst</span>  
+<span style="color:red ">und daher gut.</span>  
+<span style="color:red ">Ein Törichter versucht gut zu sein</span>  
+<span style="color:red ">und ist daher nicht gut.</span>  
+
+<span style="color:red ">Der Meister tut nichts,</span>  
+<span style="color:red ">doch er lässt nichts ungetan.</span>  
+<span style="color:red ">Der Gewöhnliche tut immer irgendetwas,</span>  
+<span style="color:red ">doch noch viel mehr bleibt zu tun übrig.</span>  
+
+<span style="color:red ">Die höchste Tugend ist Handeln ohne Ichgefühl.</span>  
+<span style="color:red ">Die höchste Güte ist bedingungsloses Geben.</span>  
+<span style="color:red ">Die höchste Gerechtigkeit ist ohne Bevorzugung zu sehen.</span>  
+
+<span style="color:red ">Wenn das Tao verloren geht, ist Güte da.</span>  
+<span style="color:red ">Wenn die Güte verloren geht, ist Moral da.</span>  
+<span style="color:red ">Wenn die Moral verloren geht, gibt es Rituale.</span>  
+<span style="color:red ">Rituale sind die Hülle des wahren Glaubens,</span>  
+<span style="color:red ">der Beginn dess Wirrwarrs.</span>  
+
+<span style="color:red ">Der große Meister folgt seinem eigenen Wesen,</span>  
+<span style="color:red ">nicht dem äußeren Drum und Dran des Lebens.</span>  
+<span style="color:red ">Es heißt:</span>  
+<span style="color:red ">>>Er bleibt bei der Frucht, nicht dem Flaum.<<</span>  
+<span style="color:red ">>>Er bleibt beim Festen, nicht dem Fadenscheinigen.<<</span>  
+<span style="color:red ">>>Er bleibt beim Wahren, nicht dem Falschen.<<</span>  
 
 ![tao_38](./assets/pics/tao_08.png)  
 &nbsp;  
 
 ## 39  
+*Diese Dinge aus alter Zeit entstehen aus dem Einen:  
+Der Himmel ist ganz und weit.  
+Die Erde ist ganz und fest.  
+Der Geist ist ganz und voll.  
+Die zehntausend Dinge sind ganz, das Land ist redlich.  
+Alles kraft der Ganzheit.*  
+
+*Wenn der Mensch das Tao stört,  
+verkommt der Himmel,  
+derödet die Erde,  
+zerfällt das Gleichgewicht,  
+sterben die Geschöpfe aus.*  
+
+*Darum wurzelt das Edle in Demut,  
+Erhabenheit gründet auf Niedrigkeit.  
+Deshalb nennt sich der Edle  
+einsam, mangelhaft und wertlos.*  
+
+*Die Bestandteile eines Wagens sind nutzlos,  
+wirken sie nicht im Einklang mit dem Ganzen.  
+Eines Menschen Leben bringt nichts,  
+lebt er nicht im Einklang mit dem ganzen Weltall.  
+Die eigene Rolle spielen,  
+in Übereinstimmung mit dem Weltall,  
+ist wahre Demut.*  
+
+*Wahrlich: zu viel Ehre ist keine Ehre.  
+Es ist nicht weise, wie Jade zu glitzern  
+und zu klingen wie Steingeläut.*  
 
 ![tao_39](./assets/pics/tao_01.png)  
 &nbsp;  
 
 ## 40  
+*Rückkehr ist die Bewegung des Tao.  
+Nachgeben ist der Weg des Tao.  
+Die zehntausend Dinge entstammen dem Sein.  
+Das Sein entstammt dem Nichtsein.*  
 
 ![tao_40](./assets/pics/tao_02.png)  
+&nbsp;  
+[...] Sechs Jahrhunderte nachdem Laotse die einundachtzig Spruchkapitel des Tao Te King diktiert hatte, beschäftigte sich ein Mann, von dem ein hoher Prozentsatz des Neuen Testaments stammt, ebenfalls mit der Frage, woraus wir entstanden sind. Zuerst hieß er Saulus von Tarsus und wurde als der heilige Paulus, Apostel Jesu Christi, bekannt. In seinem Brief an die Epheser schrieb er: >>Zieht den neuen Menschen an, der *nach dem Bild Gottes* geschaffen ist in wahrer Gerechtigkeit und Heiligkeit.<< (Eph 4,24). Das ist eine Aufforderung an uns alle, dorthin zurückzukehren, woher wir kamen: an einen liebevollen, freundlichen und nichts und niemanden ausschließenden Ort. [...] Sie können dies schaffen, indem Sie Ihr Ego ablegen sowie nachgiebig und demütig sind. [...] Nachgeben ist in der Tat der Weg des Tao und der Schlüssel zum erhabenen Dasein. Das sagen praktisch alle spirituellen Schriften, die die Jahrhunderte überdauert haben.  
+&nbsp;  
+
+## 41  
+
+
+![tao_41](./assets/pics/tao_03.png)  
+&nbsp;  
+
+## 42  
+
+
+![tao_42](./assets/pics/tao_04.png)  
+&nbsp;  
+
+## 43  
+
+
+![tao_43](./assets/pics/tao_05.png)  
+&nbsp;  
+
+## 44  
+
+
+![tao_44](./assets/pics/tao_07.png)  
+&nbsp;  
+
+## 45  
+
+
+![tao_45](./assets/pics/tao_08.png)  
+&nbsp;  
+
+## 46  
+
+
+![tao_46](./assets/pics/tao_02.png)  
+&nbsp;  
+
+## 47  
+
+
+![tao_47](./assets/pics/tao_01.png)  
+&nbsp;  
+
+## 48  
+
+
+![tao_48](./assets/pics/tao_02.png)  
+&nbsp;  
+
+## 49  
+
+
+![tao_49](./assets/pics/tao_02.png)  
+&nbsp;  
+
+## 50  
+
+
+![tao_50](./assets/pics/tao_03.png)  
 &nbsp;  

@@ -1001,7 +1001,7 @@ und die Waffen eines Landes sollen nicht zur Schau gestellt werden.*
 ![tao_36](./assets/pics/tao_05.png)  
 &nbsp;  
 
-**Streben sich durch Wahrnehmen von Gegensätzen nach Erkenntnis des Einsseins.**  
+**Streben Sie durch Wahrnehmen von Gegensätzen nach Erkenntnis des Einsseins.**  
 Geben sie sich alle Mühe, innerlich in der Einheit zu bleiben. Sind Sie zum Beispiel müde, so erinnern Sie sich daran, dass Sie auch wissen, wie es sich anfühlt, ausgeruht zu sein. Nehmen Sie auch die gegenteilige Empfindung wahr, um beide gleichzeitig zu kennen. Tun Sie dies mit jeden Gefühl: Wenn Sie sich ungeliebt fühlen oder deprimiert, wenn Sie sich als schwach, eifersüchtig oder sonst etwas empfinden, so befindet sich auch der Gegenpol dessen, was Sie jetzt durchmachen, in Ihrem Erfahrungsschatz. Suchen Sie sofort das gegenteilige Gefühl und verbinden Sie sich innerlich damit. Daraus entsteht das ausgeglichene Gefühl, in Frieden mit sich zu sein. Dies bedeutet Einssein: Sie nehmen die Extreme in sich auf und setzen Ihren Geist dazu ein, so zu sein wie das Tao, das nie irgendetwas entzweireißt. Wie kann man Einheit auseinanderbrechen? Könnte man sie aufspalten, wäre sie nicht mehr da.  
 &nbsp;  
 
@@ -1103,9 +1103,32 @@ Das Sein entstammt dem Nichtsein.*
 &nbsp;  
 
 ## 41  
+*Ein großer Schüler hört vom Tao  
+und beginnt eifrig zu üben.  
+Ein durchschnittlicher Schüler hört vom Tao,  
+behält einiges, verliert einiges.  
+Ein minderer Schüler hört vom Tao  
+und lacht laut heraus.  
+Ohne dies Lachen wäre es nicht das Tao.*  
 
+*Demgemäß sagt man:  
+Der Weg ins Licht scheint dunkel zu sein,  
+der Weg nach vorn scheint zurückzuführen,  
+der leichte Weg scheint hart zu sein,  
+wahre Kraft scheint schwach zu sein,  
+wahre Reinheit scheint befleckt zu sein,
+wahre Klarheit scheint unklar zu sein,  
+die größte Kunst scheint ungekünstelt zu sein,  
+die größte Liebe scheint gleichgültig zu sein,  
+die größte Weisheit scheint kindisch zu sein.*   
+
+*Das Tao ist verborgen und namenlos,  
+doch es allein nährt und vollendet alle Dinge.*  
 
 ![tao_41](./assets/pics/tao_03.png)  
+&nbsp;  
+
+"Der Weg ist nur für diejenigen attraktiv, die bereits klug genug sind zu wissen, wie töricht sie sind. Sarkastisches Lachen anderer Toren, die sich für klug halten, hält wahrhaft Kluge nicht davon ab, dem Weg zu folgen. Wenn Sie dem Weg folgen, werden Sie nicht kompliziert, außerordentlich und prominent, sondern einfach, gewöhnlich und subtil sein."  
 &nbsp;  
 
 ## 42  

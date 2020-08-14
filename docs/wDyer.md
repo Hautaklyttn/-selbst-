@@ -1158,17 +1158,17 @@ Dies ist meine grundsätzliche Lehre.*
 &nbsp;  
 
 ## 43  
-<span style="color:red ">*Das Weichste von allem  
+<span style="color:red ">Das Weichste von allem  
 <span style="color:red ">überwindet das Härteste von allem.  
 <span style="color:red ">Was keine Substanz hat, dringt ein, wo kein Raum ist.  
-<span style="color:red ">Daher kenne ich den Wert des Nichthandelns.*  
+<span style="color:red ">Daher kenne ich den Wert des Nichthandelns.  
 
-<span style="color:red ">*Belehren ohne Worte,  
+<span style="color:red ">Belehren ohne Worte,  
 <span style="color:red ">vollbringen, ohne zu handeln,  
 <span style="color:red ">wenige auf Erden erfassen es.  
 <span style="color:red ">Dies ist der Weg des Meisters.  
 <span style="color:red ">Selten in der Tat sind jene,  
-<span style="color:red ">die die Wohltaten der Welt erlangen.*
+<span style="color:red ">die die Wohltaten der Welt erlangen.
 
 ![tao_43](./assets/pics/tao_05.png)  
 

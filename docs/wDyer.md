@@ -1089,6 +1089,7 @@ Es ist nicht weise, wie Jade zu glitzern
 und zu klingen wie Steingeläut.*  
 
 ![tao_39](./assets/pics/tao_01.png)  
+
 &nbsp;  
 
 ## 40  
@@ -1100,6 +1101,7 @@ Das Sein entstammt dem Nichtsein.*
 ![tao_40](./assets/pics/tao_02.png)  
 &nbsp;  
 [...] Sechs Jahrhunderte nachdem Laotse die einundachtzig Spruchkapitel des Tao Te King diktiert hatte, beschäftigte sich ein Mann, von dem ein hoher Prozentsatz des Neuen Testaments stammt, ebenfalls mit der Frage, woraus wir entstanden sind. Zuerst hieß er Saulus von Tarsus und wurde als der heilige Paulus, Apostel Jesu Christi, bekannt. In seinem Brief an die Epheser schrieb er: >>Zieht den neuen Menschen an, der *nach dem Bild Gottes* geschaffen ist in wahrer Gerechtigkeit und Heiligkeit.<< (Eph 4,24). Das ist eine Aufforderung an uns alle, dorthin zurückzukehren, woher wir kamen: an einen liebevollen, freundlichen und nichts und niemanden ausschließenden Ort. [...] Sie können dies schaffen, indem Sie Ihr Ego ablegen sowie nachgiebig und demütig sind. [...] Nachgeben ist in der Tat der Weg des Tao und der Schlüssel zum erhabenen Dasein. Das sagen praktisch alle spirituellen Schriften, die die Jahrhunderte überdauert haben.  
+
 &nbsp;  
 
 ## 41  
@@ -1129,30 +1131,94 @@ doch es allein nährt und vollendet alle Dinge.*
 &nbsp;  
 
 "Der Weg ist nur für diejenigen attraktiv, die bereits klug genug sind zu wissen, wie töricht sie sind. Sarkastisches Lachen anderer Toren, die sich für klug halten, hält wahrhaft Kluge nicht davon ab, dem Weg zu folgen. Wenn Sie dem Weg folgen, werden Sie nicht kompliziert, außerordentlich und prominent, sondern einfach, gewöhnlich und subtil sein."  
+
 &nbsp;  
 
 ## 42  
+*Das Tao gebar die Eins.  
+Das Tao gebar die Zwei.  
+Das Tao gebar die Drei.  
+Und die Drei zeugte die zehntausend Dinge.  
+Die zehntausend Dinge tragen das Yin in sich und umfassen das Yang.  
+Sie erlangten Harmonie durch Verbindung der Kräfte.*  
 
+*Menschen leiden im Gedanken daran,  
+ohne Eltern, ohne Nahrung oder ohne Wert zu sein.  
+Doch gerade dies ist die Art, wie  
+Könige und Herren sich einstmals beschrieben.  
+Denn man gewinnt durch Verlust  
+und verliert durch Gewinn.*  
+
+*Was andere lehrten, lehre auch ich.  
+Gewalttätige sterben nicht eines natürlichen Todes.  
+Dies ist meine grundsätzliche Lehre.*  
 
 ![tao_42](./assets/pics/tao_04.png)  
+
 &nbsp;  
 
 ## 43  
+<span style="color:red ">*Das Weichste von allem  
+<span style="color:red ">überwindet das Härteste von allem.  
+<span style="color:red ">Was keine Substanz hat, dringt ein, wo kein Raum ist.  
+<span style="color:red ">Daher kenne ich den Wert des Nichthandelns.*  
 
+<span style="color:red ">*Belehren ohne Worte,  
+<span style="color:red ">vollbringen, ohne zu handeln,  
+<span style="color:red ">wenige auf Erden erfassen es.  
+<span style="color:red ">Dies ist der Weg des Meisters.  
+<span style="color:red ">Selten in der Tat sind jene,  
+<span style="color:red ">die die Wohltaten der Welt erlangen.*
 
 ![tao_43](./assets/pics/tao_05.png)  
+
 &nbsp;  
 
 ## 44  
+*Was bedeutet dir mehr:  
+du oder dein Ruf?  
+Was bringt dir mehr:  
+du oder dein Besitz?  
+Ich sage dir: Was du gewinnst,  
+bringt mehr Schwierigkeiten als das, was du verlierst.*  
 
+*Liebe ist die Frucht des Opfers.  
+Reichtum ist die frucht der Großzügigkeit.*  
+
+*Ein zufriedener Mensch ist nie enttäuscht.  
+Wer weiss, wann er aufhören soll, wird bewahrt vor Gefahr.  
+Nur so kannst du lange bestehen.*  
 
 ![tao_44](./assets/pics/tao_07.png)  
 &nbsp;  
 
-## 45  
+**Machen Sie Ihre Beziehung zum Tao zu Ihrer ersten Priorität.**  
+Setzen Sie Prioritäten im Leben und lassen Sie dies Ihre wichtigste und erst Verantwortung sein. Ihre wichtigste Beziehung ist die zu *Ihnen selbst*, nicht Ihrer Familie, Ihrem Geschäft, Ihrem Land, Ihrer Kultur oder Ihrer Volkszugehörigkeit. Sagen Sie sich: >>Die allererste Priorität in meinem Leben ist meine Beziehung zu meiner Daseinsquelle.<< Wenn Sie sich, bevor Sie irgendetwas anderes in Erwägung ziehen, an diese Quelle wenden, so hören Sie automatisch damit auf, von anderen Dingen mehr zu erwarten. Sie werden mühelos aus dem Tao nacheifern und im Himmel auf Erden leben.
 
+&nbsp; 
+
+## 45  
+*Die größte Vollkommenheit scheint unvollkommen zu sein,  
+und doch ist sie von unerschöpflichem Nutzen.  
+Die größte Fülle scheint leer zu sein,  
+und doch ist sie von endlosem Nutzen.*  
+
+*Große Geradheit scheint krumm zu sein.  
+Große Intelligenz scheint dumm zu sein.  
+Große Redekunst scheint unbeholfen zu sein.  
+Große Wahrheit scheint falsch zu sein.  
+Große Rede scheint still zu sein.*  
+
+*Tätigkeit bezwingt Kälte;
+Untätigkeit bezwingt Hitze.  
+Stille und Ruhe bringen die Dinge  
+im Weltall in Ordnung.*  
 
 ![tao_45](./assets/pics/tao_08.png)  
+&nbsp;  
+
+Machen Sie sich ihre konditionierten Reaktionen bewusst, infolge derer Sie Menschen, Orte und Umstände abstempeln, die nicht ganz vollkömmen sind. Sehen Sie die Makellosigkeit hinter vermeintlichen Mängeln. Als ich beispielsweise meine Kinder aufwachsen sah, empfand ich ihr herausforderndes Verhalten in einem bestimmten Alter meistens als irgendwie brilliant. So beobachtete ich zum Beispiel gelassen ihre Weigerung, bestimmte nahrhafte Speisen zu essen - in dem Wissen, dass sie diese Phasen durchlaufen mussten, um auf eine höhere Stufe zu gelangen. Die strikte Weigerung, Gemüse zu essen, ist weder töricht noch verdreht - für die Kinder war es damals perfekt und notwendig. Sie können dasselbe geduldige Stillsein in Ihrem eigenen Lebensbereich anwenden. Zentimeter um Zentimeter entwickeln wir uns als Menschheit hin zu einer tieferen Vereinigung mit dem Tao.
+
 &nbsp;  
 
 ## 46  

@@ -4,16 +4,16 @@ layout: default
 
 [Back](./)
 
-[[1]](#book1) Jean Monbourquette - *Psychologie und Spiritualität*  
-[[2]](#book2) T. Nhat Hanh - *Das Wunder der Achtsamkeit*  
-[[3]](#book3) T. Hohensee - *Gelassenheit beginnt im Kopf*  
-[[4]](#book4) Epikur - *Philosophie des Glücks*  
-[[5]](#book5) T. Strässle - *Gelassenheit*  
-[[6]](#book6) U. Ott - *Meditation für Skeptiker*  
-[[7]](#book7) M. Bordt - *Die Kunst sich selbst zu verstehen*  
-[[8]](#book8) M.Serrano - *C.G. Jung und Hermann Hesse*  
-[[9]](#book9) M.Williams - *Das Achtsamkeitstraining*  
-[[10]](#book10) Einzelne Texte  
+[[1] Jean Monbourquette - *Psychologie und Spiritualität*](#book1)  
+[[2] T. Nhat Hanh - *Das Wunder der Achtsamkeit*](#book2)  
+[[3] T. Hohensee - *Gelassenheit beginnt im Kopf*](#book3)  
+[[4] Epikur - *Philosophie des Glücks*](#book4)  
+[[5] T. Strässle - *Gelassenheit*](#book5)  
+[[6] U. Ott - *Meditation für Skeptiker*](#book6)  
+[[7] M. Bordt - *Die Kunst sich selbst zu verstehen*](#book7)  
+[[8] M.Serrano - *C.G. Jung und Hermann Hesse*](#book8)  
+[[9] M.Williams - *Das Achtsamkeitstraining*](#book9)  
+[[10] Einzelne Texte](#book10)  
 
 &nbsp;
 

@@ -4,9 +4,9 @@ layout: default
 
 [Back](./)
 
-[[1]](#book1) *Leben im Jetzt*  
-[[2]](#book2) *Jetzt! Die Kraft der Gegenwart*  
-[[3]](#book3) *Eine neue Erde*  
+[[1] *Leben im Jetzt*](#book1)  
+[[2] *Jetzt! Die Kraft der Gegenwart*](#book2)  
+[[3] *Eine neue Erde*](#book3)  
 
 &nbsp;
 

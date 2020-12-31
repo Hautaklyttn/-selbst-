@@ -4,14 +4,14 @@ layout: default
 
 [Back](./)
 
-[[1]](#book1) *Die Einheit hinter den Gegensätzen*  
-[[2]](#book2) *Das Leben bestehen*  
-[[3]](#book3) *Wer lieben kann, ist glücklich*  
-[[4]](#book4) *Eigensinn macht Spaß*  
-[[5]](#book5) *Jedem Anfang wohnt ein Zauber inne*  
-[[6]](#book6) *Siddharta*  
-[[7]](#book7) *Demian*  
-[[8]](#book8) *China - Weisheit des Ostens*
+[[1] *Die Einheit hinter den Gegensätzen*](#book1)  
+[[2] *Das Leben bestehen*](#book2)  
+[[3] *Wer lieben kann, ist glücklich*](#book3)  
+[[4] *Eigensinn macht Spaß*](#book4)  
+[[5] *Jedem Anfang wohnt ein Zauber inne*](#book5)  
+[[6] *Siddharta*](#book6)  
+[[7] *Demian*](#book7)  
+[[8] *China - Weisheit des Ostens*](#book8)
 
 &nbsp;
 

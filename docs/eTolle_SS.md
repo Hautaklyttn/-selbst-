@@ -10,16 +10,16 @@ layout: default
 
 &nbsp;
 
-[[1]](#chapter1) *Äußere und innere Stille*  
-[[2]](#chapter2) *Jenseits des Denkens*  
-[[3]](#chapter3) *Das egozentrische Selbst*  
-[[4]](#chapter4) *Das Jetzt*  
-[[5]](#chapter5) *Wer du wirklich bist*  
-[[6]](#chapter6) *Annehmen und Aufgeben*  
-[[7]](#chapter7) *Die Natur*  
-[[8]](#chapter8) *Beziehungen*  
-[[9]](#chapter9) *Der Tod und das Unvergängliche*  
-[[10]](#chapter10) *Das Leiden und die Aufhebung des Leidens*  
+[[1] *Äußere und innere Stille*](#chapter1)  
+[[2] *Jenseits des Denkens*](#chapter2)  
+[[3] *Das egozentrische Selbst*](#chapter3)  
+[[4] *Das Jetzt*](#chapter4)  
+[[5] *Wer du wirklich bist*](#chapter5)  
+[[6] *Annehmen und Aufgeben*](#chapter6)  
+[[7] *Die Natur*](#chapter7)  
+[[8] *Beziehungen*](#chapter8)  
+[[9] *Der Tod und das Unvergängliche*](#chapter9)  
+[[10] *Das Leiden und die Aufhebung des Leidens*](#chapter10)  
 
 &nbsp;
 

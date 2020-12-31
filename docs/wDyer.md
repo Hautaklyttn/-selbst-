@@ -4,8 +4,8 @@ layout: default
 
 [Back](./)
 
-[[1]](#book1) *Der wunde Punkt*  
-[[2]](#book2) *Ändere deine Gedanken - Die lebendige Weisheit des TAO*  
+[[1] *Der wunde Punkt*](#book1)  
+[[2] *Ändere deine Gedanken - Die lebendige Weisheit des TAO*](#book2)  
 
 &nbsp;
 

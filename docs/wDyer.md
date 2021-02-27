@@ -1222,31 +1222,329 @@ Machen Sie sich ihre konditionierten Reaktionen bewusst, infolge derer Sie Mensc
 &nbsp;  
 
 ## 46  
+*Wenn die Welt den Weg besitzt,  
+werden Rennpferde zum Pflügen der Felder geschirrt.  
+Wenn die Welt den Weg nicht besitzt,
+werden Kriegspferde auf dem Land gezüchtet.*  
 
+*Kein größerer Verlust als der Verlust des Tao,  
+kein größerer Fluch als Habsucht,  
+Keine größere Tragödie als Unzufriedenheit.  
+Der schlimmste Fehler ist - stets - mehr zu wollen.*  
 
-![tao_46](./assets/pics/tao_02.png)  
+*Genügsamkeit allein genügt.  
+Tatsächlich findet sich das Glück der Ewigkeit  
+in deiner Genügsamkeit.*  
+
+![tao_46](./assets/pics/tao_01.png)  
 &nbsp;  
 
 ## 47  
+*Kenne die Welt,  
+ohne vor die Tür zu treten.  
+Ohne aus dem Fenster zu blicken,  
+kannst du den Weg des Himmels schauen.*  
 
+*Je weiter einer geht,  
+desto weniger weiß er.*  
 
-![tao_47](./assets/pics/tao_01.png)  
+*Daher macht sich der Weise nicht auf  
+und weiß dennoch,  
+er schaut nicht  
+und sieht dennoch,  
+er strebt nicht  
+und erlangt dennoch Vollendung.*  
+
+![tao_47](./assets/pics/tao_02.png)  
 &nbsp;  
 
+[...] Wenn Sie "in Form" bleiben (in Ihrem Körper und in der materiellen Welt), sind Informationen Ihr Lohn. Gehen Sie hingegen *über* die Form *hinaus* (verwandeln Sie sich also in Geist), so wird Ihnen Inspiration zuteil. Somit ist Information nicht immer Wissen und Wissen nicht immer Weisheit. Weisheit verbindet Sie im Wachzustand mit dem Herzen, sie ist das Tao in Aktion. Laotse bittet Sie, den Unterschiedzwischen dem Streben nach immer neuen Tatsachen und dem Sein in einer Welt zuerkennen, die so, wie sie ist, vollständig ist. Wenn Sie aus dieser Perspektive der Weisheit - aus der Verbindung mit dem Tao - leben, sieht die Welt ganz anders aus.  
+
+&nbsp;
+
 ## 48  
+*Lernen ist tägliches Mehren.  
+Die Übung des Tao ist tägliches Mindern.  
+Mindern und wieder mindern bis zum Nichtstun.  
+Wenn nichts getan wird, bleibt nichts ungetan.*  
 
+*Wahre Meisterschaft wird dadurch erlangt,  
+den Dingen ihren Lauf zu lassen.  
+Sie wird nicht durch Einmischen erlangt.*  
 
-![tao_48](./assets/pics/tao_02.png)  
+![tao_48](./assets/pics/tao_03.png)  
 &nbsp;  
 
 ## 49  
+<span style="color:red ">Der Geist des Weisen ist nicht starr,  
+<span style="color:red ">er ist sich der Bedürfnisse anderer bewusst.  
 
+<span style="color:red ">Wer gut ist, den behandelt er mit Güte.  
+<span style="color:red ">Wer schlecht ist, den behandelt er auch mit Güte,  
+<span style="color:red ">weil das Wesen seines Seins gut ist.  
 
-![tao_49](./assets/pics/tao_02.png)  
+<span style="color:red ">Er ist freundlich zu den Frundlichen  
+<span style="color:red ">und freundlich zu den Unfreundlichen,  
+<span style="color:red ">weil das Wesen seines Seins Freundlichkeit ist.  
+
+<span style="color:red ">Den Treuen gegenüber ist er treu  
+<span style="color:red ">und treu den Untreuen gegenüber.  
+<span style="color:red ">Der Weise lebt im Einklang mit allem unter dem Himmel.  
+<span style="color:red ">Er sieht alles als sein eigenes Selbst,  
+<span style="color:red ">er liebt alle wie sein eigenes Kind.  
+
+<span style="color:red ">Alle Menschen fühlen sich zu ihm hingezogen.  
+<span style="color:red ">Er verhält sich wie ein kleines Kind.  
+
+![tao_49](./assets/pics/tao_04.png)  
 &nbsp;  
 
 ## 50  
+*Zwischen Geburt und Tod gestellt,  
+folgen drei von zehn dem Leben  
+und drei von zehn dem Tod.  
+Menschen, die nur von Geburt zum Tode schreiten,  
+sind auch drei von zehn.*  
 
+*Weshalb ist das so?  
+Weil sie sich ans Leben klammern  
+und hängen an der vergänglichen Welt.*  
 
-![tao_50](./assets/pics/tao_03.png)  
+*Doch einer von zehn, sagt man, ist das Leben so sicher,  
+dass Tiger und Nashorn fernbleiben.  
+Waffen wenden sich ab von ihm auf dem Schlachtfeld,  
+Nashörner finden keine Stelle, ihr Horn in ihn zu stecken,  
+Tiger keinen Ort für ihre Tatzen  
+und Soldaten keine Stelle, ihre Klingen hineinzustecken.*  
+
+*Weshalb ist das so?  
+Weil er an jenem Ort weilt,  
+in den der Tod nicht eintreten kann.*  
+
+*Erkenne deine Essenz,  
+und du wirst dem Ende beiwohnen, ohne zu enden.*  
+
+![tao_50](./assets/pics/tao_05.png)  
 &nbsp;  
+
+## 51  
+*Der Weg verbindet jedes Lebewesen mit seinem Ursprung.  
+Es entsteht plötzlich,  
+unbewusst, makellos, frei,  
+nimmt physische Gestalt an,  
+lässt sich von den Umständen vollenden.*  
+
+*Daher ehren alle Wesen den Weg  
+und schätzen seine Tugend.  
+Man hat ihnen nicht befohlen, das Tao zu ehren  
+und der Tugend zu huldigen,  
+doch tun sie es immer von selbst.*  
+
+*Das Tao schenkt ihnen Leben.  
+Die Tugend nährt und erhält sie,  
+zieht sie auf, beschirmt und beschützt sie.  
+Das Tao erzeugt, ohne zu besitzen.  
+Das Tao gibt ohne Erwartung.  
+Das Tao fördert das Wachstum, ohne zu beherrschen.  
+Dies nennt man verborgene Tugend.*  
+
+![tao_51](./assets/pics/tao_07.png)  
+&nbsp;  
+
+Alle erschaffenen Dinge geben zurück: dem Dasein, der Tauglichkeit,  
+von der sie abhängen ...  
+Tu du dasselbe:  
+Sei Vater oder Mutter, aber kein Besitzer,  
+sei Diener, nicht Herr.  
+Kümmere dich nicht um Gehorsam, sondern um Nutzen,  
+dann bist du in der Mitte des Lebens.  
+
+&nbsp;
+
+## 52  
+*Alles unter dem Himmel aht einen gemeinsamen Anfang.  
+Dieser Anfang ist die Mutter der Welt.  
+Wenn wir die Mutter kennen,  
+können wir die Kinder kennen lernen.  
+Wenn wir die Kinder kennen,  
+sollten wir zurückkehren und uns an die Mutter halten.*  
+
+*Halte den Mund,  
+hüte die Sinne,  
+dann ist das Leben stets erfüllt.  
+Öffne den Mund,  
+sei stets geschäftig,  
+dann ist das Leben hoffnungslos.*  
+
+*Das Kleine sehen heißt Klarheit.  
+Flexibel bleiben heißt Stärke.  
+Wenn du das strahlende Leuchten benutzt,  
+kehrst du wieder zum Licht zurück  
+und bewahrst dich vor Unglück.*  
+
+*Das nennt man  
+die Übung des ewigen Lichts.*  
+
+![tao_52](./assets/pics/tao_08.png)  
+&nbsp;  
+
+Stellen Sie sich Ihren Mund als Tor vor, das Ihren Geist bewacht. Werden Sie sich beim Reden mit anderen der Notwendigkeit bewusst, das Tor zu schließen und Ihren Geist sicher in sich eingenistet zu wissen. Ändern Sie Ihre Einstellung ebenso bzgl. Ihrer Ohren: Halten Sie sie versiegelt, wenn es um Gerüchte und Alltagsgeschwafel geht. Machen Sie weniger Worte. Nehmen Sie sich lange Phasen des Zuhörens vor. Hören Sie auf, Ratschläge zu geben, sich einzumischen und an Geschwätz teilzunehmen.  
+Bewahren Sie sich die Flexibilität, bewusst zu enscheiden, wann Sie reden und wann Sie zuhören wollen. Wenn Sie den Drang verspüren, sich in die Angelegenheiten anderer einzumischen, so denken Sie daran, dass die einzige Stimme Ihrer ewigen Mutter Stille ist. Wenn Sie dies tun, werden Sie merken, wie frei und glückselig es Sie macht, sich an die Mutter zu halten, und Sie werden schon zu Lebzeiten zu ihr zurückkehren.  
+
+&nbsp;
+
+## 53  
+*Habe ich auch nur ein Fünkchen Verstand,  
+sollte ich den Großen Weg gehen.  
+Meine einzige Angst wäre, abzuschweifen.*  
+
+*Der große Weg ist sehr eben und gerade,  
+dennoch ziehen die Menschen Seitenpfade vor.  
+Deshalb ist der Hofstaat korrupt,  
+liegen die Felder brach und  
+sind die Kornkammern leer.*  
+
+*Großartig gekleidet sein,  
+ein scharfes Schwert tragen,  
+sich voll essen und trinken,  
+Reichtum anhäufen, bis man nichts mehr  
+damit anzufangen weiß,  
+bedeutet sich wie ein Räuber gebärden.*  
+
+*Ich aber sage: Dieser Pomp auf Kosten anderer  
+ist wie das Problem von Dieben nach einer Plünderung.  
+Dies ist nicht das Tao.*  
+
+![tao_53](./assets/pics/tao_01.png)  
+&nbsp;  
+
+## 54  
+*Wer im Tao verwurzelt ist,  
+wird nicht entwurzelt.  
+Wer das Tao annimmt,  
+gleitet nicht ab.*  
+
+*Generationen ehren Generationen ohne Unterlass.  
+Im Selbst geplegt, wird Tugend verwirklicht.  
+In der Familie gepflegt, fließt die Tugend über.  
+In der Gemeinschaft gepflegt, mehrt sich die Tugend.  
+Im Land gepflegt, gibt es Tugend im Überfluss.*  
+
+*Das Tao ist überall,  
+es ist alles geworden.  
+Um es wirklich zu sehen, sieh es, wie es ist.  
+In einem Menschen, sieh es als Menschen,  
+In einer Familie, sieh es als Familie,  
+in einem Land, sieh es als Land,  
+in der Welt, sieh es als Welt.*  
+
+*Wie weiß ich, dass dies zutrifft?  
+Durch Innenschau.*  
+
+![tao_54](./assets/pics/tao_02.png)  
+&nbsp;  
+
+## 55  
+*Wer im Einklang mit dem Tao ist,  
+ist wie ein neugeborenes Kind.  
+Tödliche Insekten stechen es nicht.  
+Wilde Tiere greifen es nicht an.  
+Raubvögel stechen nicht auf es herab.  
+Seine Knochen sind schwach, seine Muskeln sind weich,  
+doch sein Griff ist fest.*  
+
+*Es hat die Vereinigung von Mann und Frau noch nicht erlebt  
+und ist doch ganz.  
+Seine Männlichkeit ist stark.  
+Es schreit den ganzen Tag ohne heiser zu werden.  
+Dies ist vollkommene Harmonie.*  
+
+*Harmonie erkennen heißt das Unveränderliche erkennen.  
+Das Unveränderliche erkennen heißt Einsicht haben.  
+Was im Einklang mit dem Tao ist, bleibt.  
+Erzwungenes wächst eine Weile,  
+doch dann welkt es dahin.  
+Das ist nicht das Tao.  
+Alles, was gegen das Tao ist, hört bald auf zu sein.*  
+
+![tao_55](./assets/pics/tao_03.png)  
+&nbsp;  
+
+## 56  
+<span style="color:red ">Wer weiß, redet nicht.  
+<span style="color:red ">Wer redet, weiß nicht.  
+
+<span style="color:red ">Verschließ alle Öffnungen!  
+<span style="color:red ">Halte den Mund,  
+<span style="color:red ">versperr deine Sinne,  
+<span style="color:red ">mach deine Schärfe stumpf,  
+<span style="color:red ">löse die Knoten,  
+<span style="color:red ">mildere deinen Glanz,  
+<span style="color:red ">lasse deinen Staub sich legen.  
+<span style="color:red ">Dies ist die erste Verbindung oder geheime Umarmung.  
+
+<span style="color:red ">Wer dies Geheimnis kennt,  
+<span style="color:red ">wird nicht durch Anhängen oder Abneigung bewegt,  
+<span style="color:red ">durch Profit oder Verlust beeinflusst  
+<span style="color:red ">oder durch Ehre oder Schmach berührt.  
+<span style="color:red ">Er steht weit über den Sorgen der Menschen,  
+<span style="color:red ">nimmt jedoch den liebsten Platz in deren Herzen ein.   
+
+<span style="color:red ">Dies ist der höchste Stand des Menschen.  
+
+![tao_56](./assets/pics/tao_04.png)  
+&nbsp;  
+
+Laotse ruft sie auf, im höheren Zustand des stillen Wissens zu leben, an jenem Ort tief in Ihrem Innern, der sich niemandem mitteilen lässt. Danach werden Sie vielleicht Ihr Denken über Menschen ändern wollen, die Sie weise oder gebildet finden. Überzeugende, sprachbegabte Redner, die eigene Ansichten energisch vortragen und auf die eigene Meinung vertrauen, hält man gewöhnlich für Menschen, die wissen, wovon sie sprechen. Laotse aber deutet an, dass genau das Gegenteil zutrifft. Wer redet, sagt er, lebt nicht vom Ort des stillen Wissens aus und weiß somit nicht.  
+Wenn Sie Ihre Ansicht über diese Anmaßung ändern, werden Sie die Welt in vielerlei Hinsicht anders wahrnehmen. Erstens werden Sie feststellen, dass diejenigen, die sich zum Dozieren und Überzeugen anderer gedrängt fühlen, fast immer an irgendetwas anhaften, sei es an einer Meinung, dem Rechthaben, Gewinn oder irgendein Profit. Je mehr sie reden, desto mehr scheinen sie durch diese Verhaftung beeinflusst werden.  
+Zweitens werden Sie feststellen, was in Ihnen passiert. Sie nehmen *Ihre* Neigung und *Ihren* Wunsch wahr, andere überreden oder überzeugen zu wollen. Dann werden Sie aufmerksam hinhören und sich in der von Laotse beschriebenen "geheimen Umarmung" der "ersten Verbindung" wiederfinden. Ihr Bedürfnis, kompetent und gebildet zu sein oder zu domnieren weicht der tiefen Einsicht, dass diese Dinge irrelevant sind. Sie interessieren sich nicht mehr für die Suche nach Anerkennung. Im stillen Wissen zu leben wird zu einem Prozess, der Ihr Dasein in ein anderes Licht rückt. Ihre Kanten verlieren an Schärfe, und Sie sind ruhiger, weicher und zentrierter.  
+Wenn Sie Ihre Meinung darüber ändern, was intelligent und klug heißt, wissen Sie auch die Ironie in diese wunderbar paradoxen Abschnitt des Tao Te King zu schätzen. Laotse sagt, der Weise, der nach dem Tao lebt, stehe "weit über den Sorgen der Menschen", nehme jedoch "den liebsten Platz" in deren Herzen ein. Ich würde das wie folgt zusammenfassen: *Wer sich am wenigsten um Beifall kümmert, bekommt anscheinend am meisten davon*. Da sich solche Menschen nicht darum kümmern, wie sie bei anderen ankommen, egal ob auf schmeichelhafte oder ungnädige Weise, suchen sie kein Lob und laufen auch nicht davor weg. Wegen ihrer ruhigen Klugheit wirken sie zwar möglicherweise distanziert, aber am Ende gewinnen sie die Achtung aller.  
+Sie haben diesen Ort des stillen Wissens gerade jetzt in sich.  
+
+&nbsp;
+
+## 57  
+*Willst du ein großer Führer werden,  
+dann musst du lernen, dem Tao zu folgen.  
+Unterlass jeden Versuch, Kontrolle auszuüben.  
+Lass festgelegte Pläne und Konzepte los,  
+und die Welt wird sich selbst regieren.*  
+
+*Wie weiß ich, dass dies so ist?  
+Weil in dieser Welt gilt:  
+je mehr Einschränkungen und Verbote es gibt,  
+desto mehr verarmen die Menschen.  
+Je ausgeklügelter die Waffen des Staates sind,  
+desto dunkler ist das Land.  
+Je gewiefter und schlauer der Plan,  
+desto seltsamer das Ergebnis.  
+Je mehr Gesetze verabschiedet werden,  
+desto mehr Diebe erscheinen.*  
+
+*Daher sagt der Weise:  
+Ich werde nicht tätig, und die Menschen bessern sich.  
+Ich bin friedlich, und die Menschen werden ehrlich.  
+Ich tue nichts, und die Menschen werden reich.  
+Ich höre auf, mich Menschen aufzudrängen,  
+und sie werden sie selbst.*  
+
+![tao_57](./assets/pics/tao_05.png)  
+&nbsp;  
+
+## 58  
+
+![tao_58](./assets/pics/tao_07.png)  
+&nbsp;  
+
+## 59  
+
+
+![tao_59](./assets/pics/tao_08.png)  
+&nbsp;  
+
+## 60  
+
+![tao_60](./assets/pics/tao_01.png)  
+&nbsp;  
+
+

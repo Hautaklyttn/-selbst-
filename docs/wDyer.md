@@ -1362,7 +1362,7 @@ dann bist du in der Mitte des Lebens.
 &nbsp;
 
 ## 52  
-*Alles unter dem Himmel aht einen gemeinsamen Anfang.  
+*Alles unter dem Himmel hat einen gemeinsamen Anfang.  
 Dieser Anfang ist die Mutter der Welt.  
 Wenn wir die Mutter kennen,  
 können wir die Kinder kennen lernen.  
@@ -1382,14 +1382,13 @@ Wenn du das strahlende Leuchten benutzt,
 kehrst du wieder zum Licht zurück  
 und bewahrst dich vor Unglück.*  
 
-*Das nennt man  
-die Übung des ewigen Lichts.*  
+*Das nennt man die Übung des ewigen Lichts.*  
 
 ![tao_52](./assets/pics/tao_08.png)  
 &nbsp;  
 
 Stellen Sie sich Ihren Mund als Tor vor, das Ihren Geist bewacht. Werden Sie sich beim Reden mit anderen der Notwendigkeit bewusst, das Tor zu schließen und Ihren Geist sicher in sich eingenistet zu wissen. Ändern Sie Ihre Einstellung ebenso bzgl. Ihrer Ohren: Halten Sie sie versiegelt, wenn es um Gerüchte und Alltagsgeschwafel geht. Machen Sie weniger Worte. Nehmen Sie sich lange Phasen des Zuhörens vor. Hören Sie auf, Ratschläge zu geben, sich einzumischen und an Geschwätz teilzunehmen.  
-Bewahren Sie sich die Flexibilität, bewusst zu enscheiden, wann Sie reden und wann Sie zuhören wollen. Wenn Sie den Drang verspüren, sich in die Angelegenheiten anderer einzumischen, so denken Sie daran, dass die einzige Stimme Ihrer ewigen Mutter Stille ist. Wenn Sie dies tun, werden Sie merken, wie frei und glückselig es Sie macht, sich an die Mutter zu halten, und Sie werden schon zu Lebzeiten zu ihr zurückkehren.  
+Bewahren Sie sich die Flexibilität, bewusst zu entscheiden, wann Sie reden und wann Sie zuhören wollen. Wenn Sie den Drang verspüren, sich in die Angelegenheiten anderer einzumischen, so denken Sie daran, dass die einzige Stimme Ihrer ewigen Mutter Stille ist. Wenn Sie dies tun, werden Sie merken, wie frei und glückselig es Sie macht, sich an die Mutter zu halten, und Sie werden schon zu Lebzeiten zu ihr zurückkehren.  
 
 &nbsp;
 

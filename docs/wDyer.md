@@ -1531,19 +1531,173 @@ und sie werden sie selbst.*
 &nbsp;  
 
 ## 58  
+*Kennt der Herrscher sein eigenes Herz,  
+so sind die Menschen einfach und rein.  
+Mischt er sich in ihr Leben ein,  
+so werden sie unruhig und verwirrt.*  
+
+*Unglück ist das, woran sich das Glück lehnt,  
+Glück ist das, worin sich das Unglück versteckt.  
+Wer kennt das letzte Ziel dieses Prozesses?  
+Gibt es keine Norm für das Rechte?  
+Doch was normal ist, wird bald abnorm.  
+Verwirrung des Volkes gibt es tatsächlich schon lange.*  
+
+*Daher begnügt sich der Meister, als Vorbild zu dienen,  
+ohne seinen Willen aufzuzwingen.  
+Er ist spitz, durchbohrt jedoch nicht,  
+er biegt gerade, stört jedoch nicht,  
+er erhellt, blendet jedoch nicht.*  
 
 ![tao_58](./assets/pics/tao_07.png)  
 &nbsp;  
 
+Ändern Sie ihre Auffassung über die Gipfel und Täler des Lebens. Nehmen Sie eine Haltung an, die Sie entdecken lässt, was sich hinter beiden Formen der Erfahrung verbirgt. Sehen Sie statt *Glück* oder *Unglück* lieber *Ganzheit*. Sehen Sie Gegensätze als Bestandteile der Einheit statt als störende Überraschungen an. In einer Welt reiner Tao-Einheit gitb es weder Glück noch Unglück. Sie ist unteilbar. Was Sie *Unglück* nennen, birgt *Glück* in sich, das nur darauf wartet, ans Licht zu treten, weil es die andere Hälfte der Schöpfung repräsentiert.  
+Laotses Rat, wie man den achtundfünfzigsten Spruch in der heutigen Welt anwenden könnte, würde wahrscheinlich ungefähr so klingen:  
+
+> Nehmen Sie Ganzheit statt Glück oder Unglück wahr.  
+
+&nbsp;
+
 ## 59  
+*Beim Regieren von Menschen und dem Dienst an der Natur  
+übertrifft nichts Sparsamkeit und Mäßigung.*  
+
+*Zurückhaltung beginnt mit dem Aufgeben eigener Ideen.  
+Dies hängt von früher angesammelter Tugend ab.  
+Bei einem guten Vorrat an Tugend ist nichts unmöglich.  
+Wenn nichts unmöglich ist, gibt es keine Grenzen.  
+Wenn ein Mensch keine Grenzen kennt, ist er zum Führen geeignet.*  
+
+*Dies ist der Weg, tief im Tao verwurzelt und fest darin eingepflanzt zu sein,  
+das Geheimnis langen Lebens und dauerhafter Vision.*  
 
 
 ![tao_59](./assets/pics/tao_08.png)  
 &nbsp;  
 
 ## 60  
+*Einen großen Staat regiert man so,  
+wie man kleine Fische brät.  
+Mit zu viel Gestocher ruiniert man sie.*  
+
+*Nähere dich dem Universum mit dem Tao,  
+und das Böse wird keine Macht haben.  
+Nicht, dass es nicht mächtig wäre,  
+doch seine Macht wird nicht zum Schaden anderer eingesetzt.  
+Nicht nur wird es anderen nicht schaden,  
+sondern der Weise ist ebenfalls geschützt.*  
+
+*Ließen Herrscher und Volk nur  
+davon ab, einander zu schaden,  
+häufte sich das ganze Wohl des Lebens  
+im Königreich an.*  
 
 ![tao_60](./assets/pics/tao_01.png)  
 &nbsp;  
 
+## 61  
+*Ein großes Land ist wie die Ebene,  
+in welche alle Ströme fließen.  
+Sie ist das Sammelbecken von allem unter dem Himmel,  
+das Weibliche der Welt.  
+Das Weibliche besiegt das Männliche durch Stille,  
+indem es sich durch seine Ruhe unterstellt.*  
+
+
+*Wenn sich also ein großes Land einem kleinen unterstellt,  
+gewinnt es Freundschaft und Vertrauen.  
+Und wenn ein kleines Land sich einem großen unterstellt,  
+gewinnt es das große für sich.  
+Das eine gewinnt, da es sich unterstellt,  
+das andere, indem es unten bleibt.*  
+
+![tao_61](./assets/pics/tao_02.png)  
+&nbsp;  
+
+**Überdenken Sie Ihre persönliche Vorstellung von Stärke**  
+Sind sie imstande, auch in der Demut, in der Stille und darin Kraft zu sehen, unten und verborgen zu bleiben? In den Kampfkünsten ist derjenige der größte Sieger, der am wenigsten Kraft aufwendet, der sich vielmehr die Kraft des Gegners zunutze macht, wenn dieser sich auf ihn stürzt. Sehen Sie sich nur an, wie viel Gewalt in der Menschheitsgeschichte eingesetzt wurde: Wer von einer Machtstellung besesseb ist, greift schließlich zu Grausamkeit und erfährt daraufhin dieselbe Grausamkeit. Das gilt auch für Ihr eigenes Leben.  
+Wenn Sie still und unterhalb der Radarhöhe bleiben, werden andere schließlich zu Ihnen kommen und sich Ihnen freundschftlich und vertrauensvoll anschließen. Wenn Sie im Modus des Yin, des Weiblichen, der göttlichen Mutter bleiben, strahlen Sie Energie und Stärke aus und gewinnen andere Menschen, auch solche, die Veränderungen nicht mögen. Stellen Sie sich vor, Sie seien das Meer, und bleiben Sie genügend weit unten, damit alle anderen zu Ihnen hinabfließen und ein *großes Land* schaffen, in dem Sie sich niederlassen.
+
+&nbsp; 
+
+## 62  
+*Das Tao ist das Schatzhaus  
+des wahren Wesens,  
+der geheime Ursprung aller Dinge.  
+Es ist der Schatz des guten Menschen  
+und die Zuflucht des schlechten Mnschen.*  
+
+*Scheint jemand böse zu sein,  
+so stoße ihn nicht aus.  
+Wecke ihn mit deinen Worten,  
+erbaue ihn mit deinen Taten,  
+vergelte seine Kränkung mit deiner Güte.  
+Stoße ihn nicht aus,  
+stoße seine Bosheit aus.*  
+
+![tao_62](./assets/pics/tao_03.png)  
+&nbsp;  
+
+## 63  
+<span style="color:red ">Übe Nichthandeln.  
+<span style="color:red ">Arbeite ohne zu tun.  
+<span style="color:red ">Schmecke das Geschmacklose.  
+<span style="color:red ">Vergrößere das Kleine, mehre das Wenige.  
+<span style="color:red ">Vergilt Bitterkeit mit Fürsorge.  
+<span style="color:red ">Sieh Einfachheit im Komplizierten.  
+<span style="color:red ">Erlange Größe in kleinen Dingen.  
+
+<span style="color:red ">Löse Schwierigkeiten, solange sie noch leicht sind.  
+<span style="color:red ">Vollbringe Großes, solange es noch klein ist.
+<span style="color:red ">Der Weise trachtet nie nach dem Großen, folglich erlangt er Größe.
+
+<span style="color:red ">Stimmst du zu leicht zu, vertraut man dir wenig.  
+<span style="color:red ">Da der Weise sich Schwierigkeiten immer stellt,  
+<span style="color:red ">erfährt er nie welche.  
+
+![tao_63](./assets/pics/tao_04.png)  
+&nbsp;  
+
+## 64  
+
+
+![tao_64](./assets/pics/tao_05.png)  
+&nbsp;  
+
+## 65  
+
+
+![tao_65](./assets/pics/tao_07.png)  
+&nbsp;  
+
+## 66  
+
+
+![tao_66](./assets/pics/tao_08.png)  
+&nbsp;  
+
+## 67  
+
+
+![tao_67](./assets/pics/tao_01.png)  
+&nbsp;  
+
+## 68  
+
+
+![tao_68](./assets/pics/tao_02.png)  
+&nbsp;  
+
+## 69  
+
+
+![tao_69](./assets/pics/tao_03.png)  
+&nbsp;  
+
+## 70  
+
+
+![tao_70](./assets/pics/tao_04.png)  
+&nbsp;  
 

@@ -1637,6 +1637,7 @@ Stoße ihn nicht aus,
 stoße seine Bosheit aus.*  
 
 ![tao_62](./assets/pics/tao_03.png)  
+
 &nbsp;  
 
 ## 63  
@@ -1657,47 +1658,425 @@ stoße seine Bosheit aus.*
 <span style="color:red ">erfährt er nie welche.  
 
 ![tao_63](./assets/pics/tao_04.png)  
+
 &nbsp;  
 
 ## 64  
+*Was ruhig ist, lässt sich leicht bewältigen.  
+Was noch nicht offenbar ist, lässt sich leicht verhindern.  
+Was zerbrechlich ist, lässt sich leicht zerschlagen.  
+Was klein ist, lässt sich leicht zerstreuen.*  
 
+*Handle, bevor etwas da ist.  
+Bewältige die Dinge, bevor es Unordnung gibt.  
+Denke daran:  
+Ein Baum, den ein Mann umfängt, entsteht aus einem Sämling.  
+Ein neun Stockwerke hoher Turm beginnt mit dem ersten Baustein.  
+Eine Reise von tausend Meilen beginnt mit dem ersten Schritt.*  
+
+*Handle und verdirb es.  
+Halte fest und verlier es.  
+Der Weise handelt nicht und wird nicht bezwungen.  
+Er hält nichts fest, daher verliert er nichts.  
+Die Leute scheitern gewöhnlich kurz vor dem Erfolg.  
+Widme also dem Ende so viel Sorge wie dem Anfang,  
+dann gibt es kein Scheitern.*  
+
+*Der Weise schätzt nicht, was schwer zu erreichen ist.  
+Er sammelt keine kostbaren Dinge an.  
+Er lernt, nicht an Ideen festzuhalten.  
+Er hilft den zehntausend Dingen, ihr eigenes Wesen zu finden,  
+doch erlaubt er sich nicht, sie an der Nase herumzuführen.*  
 
 ![tao_64](./assets/pics/tao_05.png)  
+
 &nbsp;  
 
 ## 65  
+*Die Weisen aus alter Zeit hatten ein einfaches Gemüt  
+und mischten sich unter das Volk.  
+Sie stachen nicht hervor.  
+Sie herrschten nicht mit Gerissenheit,  
+und das Land war gesegnet.*  
 
+*Wenn sie glauben, dass sie die Antowrten kennen,  
+sind die Menschen schwer zu lenken.  
+Wenn sie wissen, dass sie nicht wissen,  
+können die Menschen ihren eigenen Weg finden.*  
+
+*Nicht Schlauheit einzusetzen, um ein Land zu regieren  
+bringt Glück für das Land.  
+Das einfachste Vorbild ist das deutlichste.  
+Zufrieden mit einem gewöhnlichen Leben,  
+kannst du allen Menschen den Weg zeigen,  
+der zu ihrem eigenen wahren Wesen zurückführt.*  
 
 ![tao_65](./assets/pics/tao_07.png)  
+
 &nbsp;  
 
 ## 66  
+<span style="color:red ">Weshalb ist das Meer König von hundert Strömen?  
+<span style="color:red ">Weil es tiefer liegt als sie.  
+<span style="color:red ">Demut verleiht ihm seine Macht.  
 
+<span style="color:red ">Wer über anderen stehen will,  
+<span style="color:red ">muss demütig reden.  
+<span style="color:red ">Wer führen will, muss folgen.  
+
+<span style="color:red ">Wenn ein Weiser über ihnen steht,  
+<span style="color:red ">fühlen sich die Menschen nicht unterdrückt.  
+<span style="color:red ">Und wenn er den Leuten vorangeht,  
+<span style="color:red ">sind sie nicht verletzt.  
+
+<span style="color:red ">Der Weise bleibt niedrig,  
+<span style="color:red ">und die Welt wird nicht müde, ihn zu verherrlichen.  
+<span style="color:red ">Er bleibt ein Diener,  
+<span style="color:red ">und die Welt wird nicht müde, ihn zu ihrem König zu machen.  
 
 ![tao_66](./assets/pics/tao_08.png)  
+
 &nbsp;  
 
 ## 67  
+*Alle Welt spricht über mein Tao  
+mit solcher Vertraulichkeit -  
+welche Torheit!*  
 
+*Das Tao ist nicht etwas, was man auf dem Markt findet  
+oder das vom Vater auf den Sohn übergeht.  
+Es ist nicht etwas, das man durch Wissen erlangt  
+oder durch Vergessen verliert.  
+Wäre das Tao so,  
+wäre es schon vor langer Zeit verloren gegangen und vergessen.*
+
+*Ich habe drei Schätze, die ich festhalte  
+und über die ich wache.  
+Der erste ist Güte.  
+Der zweite ist Genügsamkeit.  
+Der dritte ist Bescheidenheit.  
+Von Güte kommt Mut.  
+Von Genügsamkeit kommt Großzügigkeit.  
+Von Bescheidenheit kommt Führungskraft.  
+Wäre man kühn, ohne gütig zu sein,  
+wäre manweitherzig, ohne genügsam zu sein,  
+ginge man voran, ohne bescheiden zu sein,  
+so würde man sterben.  
+Die Liebe besiegt alle Angreifer  
+und ist unüberwindlich bei der Verteidigung.  
+Wen der Himmel beschützen will,  
+schickt er dem ein Heer?  
+Nein, er schützt ihn durch Liebe.*  
 
 ![tao_67](./assets/pics/tao_01.png)  
+
 &nbsp;  
 
 ## 68  
+*Ein guter Soldat ist nicht gewaltätig.  
+Ein guter Kämpfer ist nicht zornig.  
+Gute Sieger streiten nicht.  
+Gute Arbeitgeber dienen ihren Arbeitgebern.  
+Der beste Führer folgt dem Willen des Volkes.*  
 
+*Sie alle verkörpern die Tugend des Nichtwetteiferns.  
+Das nennt man die Tugend des Nichtstreitens.  
+Das nennt man die Kräfte der anderen nutzen.*  
+
+*Das kennt man seit uralter Zeit als  
+höchstes Einssein mit dem Himmel.*  
 
 ![tao_68](./assets/pics/tao_02.png)  
 &nbsp;  
 
-## 69  
+**Entscheiden Sie sich, nicht kämpfen zu wollen**  
+Bekämpfen Sie weder Erkältungen, Krankheiten noch schwere Heimsuchungen. Kämpfen Die weder mit Angehörigen noch gegen politische Meinungen. Bekämpfen Die keine Abhängigkeiten, und das Wichtigste: Bekämpfen Sie sich nicht selbst. Nehmen Sie stattdessen einen kooperativen Lebensstil an. Befinden sich Krebs- oder Arthtitiszellen in Ihrem Körper, so reden Sie ungefähr auf folgende Weise mit ihnen: "Wenn ihr darauf besteht, euch in meinem Körper aufzuhalten, so möchte ich harmonisch, friedlich und völlig gesund mit euch leben. Andernfalls lade ich euch ein, euch einen anderen Wohnsitz zu suchen." Das klingt vielleicht seltsam, bringt Sie aber wieder in Harmonie mit dem Tao, das weder gewaltätig, hasserfüllt noch zornig ist.  
+Wenn es um Ihre Kinder und andere Angehörige geht, so betrachten Sie sich als deren Verbündete und üben Sie täglich die Tugend des Nichtstreitens.  
 
+&nbsp;  
+
+## 69  
+*Es gibt ein Sprichwort unter Soldaten:  
+Ich wage nicht, den ersten Zug zu tun,  
+sondern möchte lieber den Gast spielen.  
+Ich wage keinen Zentimeter vorzurücken,  
+sondern ziehe mich lieber einen Fuß zurück.*  
+
+*Das nennt man  
+vorwärtsgehen ohne vorzurücken,  
+zurücktrieben, ohne Waffen zu gebrauchen.*  
+
+*Es gibt kein größeres Unglück  
+als das Gefühl "Ich habe einen Feind".  
+Wenn "ich" und "Feind" gleichzeitig existieren,  
+bleibt kein Platz mehr für meinen Schatz.*  
+
+*Wenn also zwei Gegner aufeinandertreffen,  
+wird der ohne Feind  
+mit Sicherheit siegen.*  
+
+*Wenn Heere ebenbürtig sind,  
+siegt das mitfühlende.*  
 
 ![tao_69](./assets/pics/tao_03.png)  
+
 &nbsp;  
 
 ## 70  
+*Meine Lehren sind leicht zu verstehen  
+und leicht in die Praxis umzusetzen.  
+Doch nur wenige auf Erden verstehen sie,  
+und nur wenige setzen sie um.*  
 
+*Meine Worte haben einen Ahnen,  
+meine Taten haben einen Herrn.  
+Die Menschen haben keine Kenntnis davon,  
+deswegen kennen sie mich nicht.*  
+
+*Deswegen kleidet sich der Weise schlicht,  
+doch sein Inneres  
+ist voller Edelsteine.*  
 
 ![tao_70](./assets/pics/tao_04.png)  
+
+&nbsp;  
+
+## 71  
+*Unwissen erkenne ist Stärke.  
+Erkenntnis missachten ist Krankheit.*  
+
+*Erst wenn Krankheit uns krank macht,  
+hören wir auf, krank zu sein.  
+Der Weise ist nicht krank, sondern die Krankheit leid.  
+Das ist das Geheimnis von Gesundheit.*  
+
+![tao_71](./assets/pics/tao_05.png)  
+
+&nbsp;  
+
+## 72  
+*Wenn den Menschen die Ehrfurcht fehlt,  
+gibt es ein Unglück.  
+Wenn Menschen die weltliche Macht nicht fürchten,  
+kommt eine größere Macht.*  
+
+*Beschränke nicht die Sicht deiner selbst.  
+Verachte nicht die Umstände deiner Geburt.  
+Widersetze dich nicht dem natürlichen Lauf deines Lebens.  
+So wirst du der Welt nie überdrüssig.*  
+
+*Daher erkennt sich der Weise,  
+doch trägt er sich nicht zur Schau.  
+Er liebt sich,  
+doch erhöht er sich nicht.  
+Er zieht dem Äusseren das Innere vor.*  
+
+![tao_72](./assets/pics/tao_07.png)  
+&nbsp;
+
+> Lieben Sie sich selbst, protzen Sie nicht und schweigen Sie in ehrfürchtiger Akzeptanz. 
+
+&nbsp;  
+
+## 73  
+*Kühne Taten gegen andere führen zum Tod.  
+Kühne Taten im Einklang mit dem Tao führen zum Leben.  
+Von diesen beiden  
+ist eines von Vorteil,  
+das andere schadet.*  
+
+*Der Weg des Himmels bezwingt, ohne zu kämpfen.  
+Er spricht nicht und findet doch Antwort.  
+Er bittet nicht, und doch wird er mit allem Nötigen versorgt.  
+Er eilt nicht, und doch vollendet er alles zur rechten Zeit.*  
+
+*Des Himmels Netz fängt alles auf.  
+Obwohl es grobmaschig ist,  
+schlüpft nichts hindurch.*  
+
+![tao_73](./assets/pics/tao_08.png)  
+
+&nbsp;  
+
+## 74  
+*Erkennst du klar, dass sich alle Dinge verändern,  
+dann wirst du dich an nichts festhalten wollen.  
+Hast du keine Angst vor dem Sterben,  
+dann gibt es nichts, das du nicht erlangen kannst.*  
+
+*Es gibt immer einen Herrn des Todes.  
+Wer den Platz des Herrn des Todes einnimmt,  
+ist wie jemand, der mit der Axt  
+des Zimmermanns zuschlägt.  
+Wer mit der Axt des Zimmermanns zuschlägt,  
+verletzt sich bestimmt die eigene Hand.*  
+
+![tao_74](./assets/pics/tao_01.png)  
+
+&nbsp;  
+
+## 75  
+*Wenn die Steuern zu hoch sind  
+hungern die Menschen.  
+Wenn die Regierung sich zu sehr einmischt,  
+verlieren die Menschen den Mut.*  
+
+*Wirke im Interesse der Menschen.  
+Vertrau ihnen, lass sie in Ruhe.*  
+
+![tao_75](./assets/pics/tao_02.png)  
+
+&nbsp;  
+
+## 76  
+*Der Mensch kommt sanft und schwach zu Welt,  
+wenn er stirbt, ist er hart und steif.  
+Alle Dinge bis hin zum Gras und den Bäumen  
+sind weich und biegsam im Leben,  
+trocken und spröde im Tod.*  
+
+*Steifheit ist ein Gefährte des Todes,  
+Biegsamkeit eine Gefährtin des Lebens.  
+Ein Heer, das nicht weichen kann,  
+wird besiegt.  
+Ein Baum, der nicht biegsam ist,  
+zerbricht im Wind.*  
+
+*Das Harte und Steife bricht,  
+das Weiche, Geschmeidige siegt.*  
+
+![tao_76](./assets/pics/tao_03.png)  
+
+&nbsp;  
+
+## 77  
+*Der Weg des Himmels  
+ist wie das Bogenspannen:  
+Das Hohe drückt er nach unten,  
+das Niedrige erhöht er.*  
+
+*Er nimmt von dem, was zu viel ist,  
+und mehrt, wo zu wenig ist.  
+Der Weg der Menschheit ist umgekehrt:  
+Er nimmt, wo zu wenig ist, um zu mehren, wo zu viel ist.  
+Er nimmt den Bedürftigen, um die zu bedienen, die zu viel haben.*  
+
+*Nur wer das Tao hat, bietet den Überschuss anderen an.  
+Welcher Mensch hat mehr als genug  
+und gibt es der Welt?  
+Nur der Mann des Tao.*  
+
+*Der Meister kann immerfort geben,  
+weil sein Reichtum niemals versiegt.  
+Er handelt ohne Erwartung,  
+hat Erfolg, ohne Anerkennung zu verlangen,  
+und hält sich nicht für besser  
+als andere.*  
+
+![tao_77](./assets/pics/tao_04.png)  
+
+&nbsp;  
+
+## 78  
+*Nichts auf der Welt ist weicher  
+und schwächer als Wasser.  
+Doch um Hartes und Unnachgiebiges anzugreifen,  
+ist es unübertroffen.  
+Nichts gleicht ihm.*  
+
+*Das Schwache überwindet das Starke,  
+das Weiche übertrifft das Harte.  
+Auf der ganzen Welt gibt es niemanden, der dies nicht wüsste,  
+doch niemand meister die Übung.*  
+
+*Daher bleibt der Meister  
+gelassen mitten im Leid,  
+das Böse kann nicht in sein Herz eindringen.  
+Weil er das Helfen aufgegeben hat,  
+ist er für die Menschendie größte Hilfe.*  
+
+*Wahre Worte scheinen paradox zu sein.*  
+
+![tao_78](./assets/pics/tao_05.png)  
+&nbsp;
+
+**Ändern Sie ihre Auffassung von Stärke und Schwäche.**  
+Erkennen Sie, dass klischeehafte Vorzüge wie Starrheit, Härte, Energischsein, Selbstbewusstsein und Dominanz in Wahrheit überhaupt keine Merkmale von Stärke sind. Diese Eigenschaften bewirken eher, dass Sie durch Weiches besiegt und überwältigt werden, von dem, was Sie Schwäche zu nennen pflegten. Ändern Sie Ihre Meinung darüber und sehen Sie zu, wie sich dadurch auch Ihre Welt ändert. Wenn Sie diejenigen zu bewundern und nachzuahmen beginnen, die schwach und biegsam bleiben, werden Sie die wahre Stärke in sich als Mensch des Tao erkennen. Hören Sie auf, sich einzumischen und zu helfen, und treffen Sie lieber die Entscheidung, wie das Wasser sachte, leise und unauffällig dorthin zu fließen, wo Sie gerade gebraucht werden.  
+
+&nbsp;  
+
+## 79  
+*Nach einem erbitterten Streit bleibt einiger Groll.  
+Was kann man da tun?  
+Zufrieden sein mit dem, was du hast,  
+ist am Ende immer das Beste.*  
+
+*Jemand muss riskieren, Verletzungen mit Güte zu vergelten,  
+sonst wird aus Feindseligkeit nie Wohlwollen.  
+Also gibt der Weise stets, ohne Dank zu erwarten.*  
+
+*Hat jemand wahre Tugend,  
+so sucht er stets eine Möglichkeit zu geben.  
+Hat jemand keine wahre Tugend,  
+so sucht er stets eine Möglichkeit zu bekommen.  
+Zum Gebenden kommt die Fülle des Lebens,  
+zum Nehmenden bloß eine leere Hand.*  
+
+
+![tao_79](./assets/pics/tao_07.png)  
+
+&nbsp;  
+
+## 80  
+*Stell dir ein kleines Land mit wenigen Menschen vor.  
+Sie haben Waffen und brauchen sie nicht.  
+Sie genießen die Arbeit ihrer Hände  
+und vergeuden keine Zeit mit dem Erfinden Arbeit sparnender Maschinen.*  
+
+*Sie nehmen den Tod ernst und reisen nicht weit.  
+Da sie ihr Zuhause innig lieben,  
+interessieren sie sich nicht fürs Reisen.  
+Es gibt zwar Wagen und Boote,  
+doch niemand benutzt sie.*  
+
+*Sie genießen gesundes Essen,  
+ihnen gefällt nützliche Kleidung,  
+sie sind mit einem behaglichen Zuhause zufrieden  
+und schützen ihre Lebensart.*  
+
+*Obwohl sie in Sichtweite ihrer Nachbarn wohnen,  
+und krähende Hähne und bellende Hunde  
+auf der anderen Seite zu hören sind,  
+lassen sie einander in Frieden  
+während sie altern und sterben.*  
+
+![tao_80](./assets/pics/tao_08.png)  
+
+&nbsp;  
+
+## 81  
+*Wahre Worte sind nicht schön.  
+Schöne Worte sind nicht wahr.  
+Gute Menschen streiten nicht.  
+Wer streitet ist nicht gut.  
+Tugendhafte suchen keine Fehler.  
+Wer Fehler sucht, hat keine Tugend.*  
+
+*Weise sammeln nichts an,  
+sondern geben alles den anderen,  
+sie haben umso mehr, je mehr sie geben.*  
+
+*Der Himmel tut allen Gutes  
+und niemandem Böses.  
+Der Weise ahmt ihn nach und handelt  
+zum Besten aller.  
+Er widersetzt sich niemandem.*  
+
+![tao_81](./assets/pics/tao_01.png)  
+&nbsp;
+
+**Reduzieren Sie sich auf Null oder Nichts.**
+Betrachten Sie Ihren Körper und all ihr Hab und Gut und stellen Sie diese in den Rahmen der sich ändernden Welt. Halten Sie sich den Satz Gandhis vor Augen: "Wer im Ozean der Wahrheit schwimmen will, muss sein persönliches Ego vollkommen auflösen." Beobachten Sie also vom Ort des 'Nichts' oder von Null aus, was Sie in der Welt der Dinge anhäufen. Aus dieser Perspektive werden Sie feststellen, dass nichts in einer solchen Welt je wirklich sein kann. Machen Sie diese Übung jedes Mal, wenn Sie feststellen, dass Sie an Besitz oder an einem Standpunkt festhalten.
+
 &nbsp;  
 

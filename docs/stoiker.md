@@ -16,7 +16,8 @@ layout: default
 
 &nbsp;
 
-\>\>Von allen Menschen ruhen nur diejenigen in sich, die sich Zeit für Philosophie nehmen - nur sie verstehen es zu leben. Sie geben sich nicht bloß damit zufrieden, gut durch ihre Tage zu kommen, sondern genießen jedes Lebensalter. Die Früchte der Vergangenheit bewahren sie. Nur einem undankbaren Menschen würde es misslingen zu erkennen, dass diese großen Architekten ehrwürdiger Gedanken für uns ins Leben gerufen wurden und einen Weg des Lebens für uns entworfen haben.\<\<
+>Von allen Menschen ruhen nur diejenigen in sich, die sich Zeit für Philosophie nehmen - nur sie verstehen es zu leben. Sie geben sich nicht bloß damit zufrieden, gut durch ihre Tage zu kommen, sondern genießen jedes Lebensalter. Die Früchte der Vergangenheit bewahren sie. Nur einem undankbaren Menschen würde es misslingen zu erkennen, dass diese großen Architekten ehrwürdiger Gedanken für uns ins Leben gerufen wurden und einen Weg des Lebens für uns entworfen haben.  
+> <font size="-1">(SENECA)</font>
 
 &nbsp;
 

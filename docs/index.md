@@ -16,6 +16,8 @@ layout: home
 
 [Wayne Dyer - Sammlungen](./wDyer.html)
 
+[Der tägliche Stoiker](./stoiker.html)
+
 [Diverse](./various.html)
 
 [Diverse 2](./various2.html)

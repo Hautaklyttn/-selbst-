@@ -31,7 +31,7 @@ layout: default
 &nbsp;
 
 **Bildung bedeutet Freiheit**  
->Was sind die Früchte dieser Lehrstunden? Nur der schönste und angemessenste Ertrag der wahrhaft Gebildeten: Gelassenheit, Angstlosigkeit und Freiheit. Wir sollten nicht den Massen trauen, die sagen, nur wer ist, kann gebildet sein, sondern vielmehr den Weisen, die sagen: Nur die Gebildeten sind frei.   
+>Was sind die Früchte dieser Lehrstunden? Nur der schönste und angemessenste Ertrag der wahrhaft Gebildeten: Gelassenheit, Angstlosigkeit und Freiheit. Wir sollten nicht den Massen trauen, die sagen, nur wer frei ist, kann gebildet sein, sondern vielmehr den Weisen, die sagen: Nur die Gebildeten sind frei.   
 > <font size="-1">(EPIKTET, Lehrgespräche)</font>
 
 Warum hast du zu diesem Buch gegriffen? Warum greift man überhaupt zu einem Buch? Nicht, um klüger zu erscheinen. Nicht, um sich die Zeit in einem Flugzeug zu vertreiben. Nicht, um zu erfahren, was du ohnehin schon weißt - es gibt genügend andere Möglichkeiten als zu lesen.  

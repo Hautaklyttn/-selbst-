@@ -75,7 +75,7 @@ Behalte das im Kopf.
 
 Denke an all jene, die dir an den Geldbeutel wollen oder um ein paar Sekunden deiner Aufmerksamkeit buhlen. Ernährungswissenschaftler entwickeln Produkte, die genau auf deine Geschmacksnerven abgestimmt sind. Ingenieure im Silicon Valley entwickeln Apps, die so süchtig machen wie Glücksspiele. Die Medien präsentieren Sensationsgeschichten, die in uns Wut und Entsetzen hervorrufen.  
 Dies ist nur ein kleiner Teil der Verführungen und Kräfte, die an uns zerren – uns ablenken und von den Dingen abbringen, die wahrhaft von Bedeutung sind. Marc Aurel war dankbarerweise diesen Extremen unserer modernen Gesellschaft nicht ausgeliefert. Aber er kannte eine Menge verführerischer Fallstricke: Klatsch, nicht enden wollende Arbeit, aber auch Angst, Misstrauen und Begierde. Jedes menschliche Wesen ist diesen inneren und äußeren Mächten ausgesetzt; sie werden zunehmend mächtiger und es wird immer schwerer, ihnen zu widerstehen.  
-Die Philosophie fordert uns auf, achtsam zu sein und danach zu streben, mehr als nur eine Schachfigur zu sein. So formulierte es Viktor Frankl in seinem Buch Der Wille zum Sinn: »Der Mensch ist hin- und hergerissen zwischen Tatendrang und Werten.« Diese Werte und innere Achtsamkeit schützen uns davor, Marionetten zu sein. Sicherlich erfordert es Arbeit, stets aufmerksam zu sein, aber ist das nicht besser, als an einer Strippe zu hängen?
+Die Philosophie fordert uns auf, achtsam zu sein und danach zu streben, mehr als nur eine Schachfigur zu sein. So formulierte es Viktor Frankl in seinem Buch Der Wille zum Sinn: »Der Mensch ist hin- und hergerissen zwischen Tatendrang und Werten.« Diese Werte und innere Achtsamkeit schützen uns davor, Marionetten zu sein. Sicherlich erfordert es Arbeit, stets aufmerksam zu sein, aber ist das nicht besser, als an einer Strippe zu hängen?  
 
 &nbsp;
 
@@ -85,9 +85,10 @@ Die Philosophie fordert uns auf, achtsam zu sein und danach zu streben, mehr als
 
 Seneca benutzt in seiner Abhandlung über die Gelassenheit das griechische Wort euthymia, das er folgendermaßen definiert: »An dich selbst zu glauben und zu vertrauen, dass du auf dem richtigen Weg bist; dich nicht abbringen zu lassen, indem du den unzähligen Fußpfaden derer folgst, die in alle möglichen Richtungen aufbrechen.« Es ist diese Gemütsverfassung, die laut Seneca Gelassenheit hervorruft.  
 Wir können nur an uns glauben, wenn wir den Weg klar vor Augen haben. Das soll nicht bedeuten, dass wir uns bei allem immer hundertprozentig sicher sind oder dies sein sollten. Wir brauchen lediglich die Zuversicht, dass wir uns grundsätzlich in die richtige Richtung bewegen – dass wir uns nicht ständig mit anderen Leuten vergleichen müssen oder alle paar Sekunden unsere Meinung ändern, je nachdem, ob wir etwas Neues erfahren.  
-Stattdessen finden wir Gelassenheit und Frieden, wenn wir unseren Weg erkennen und ihm treu bleiben, auch wenn hier und da kleine Korrekturen nötig sind – aber wir sollten die verführerischen Sirenen ignorieren, die uns zu den Klippen locken.
+Stattdessen finden wir Gelassenheit und Frieden, wenn wir unseren Weg erkennen und ihm treu bleiben, auch wenn hier und da kleine Korrekturen nötig sind – aber wir sollten die verführerischen Sirenen ignorieren, die uns zu den Klippen locken.  
 
 &nbsp;
+
  **Betrachte die Welt wie ein Dichter und Künstler**  
 > Durchlaufe diese kurze Zeitspanne in Einklang mit der Natur, und erreiche deine letzte Ruhestätte in Würde, so wie die reife Olive, die vom Baum fällt und die Erde preist, die sie ernährt hat, und dem Baum dankbar ist, der sie wachsen ließ.  
 > <font size="-1">(Marc Aurel, Selbstbetrachtungen)</font> 
@@ -120,6 +121,7 @@ Marc Aurel fordert, an jede Aufgabe heranzugehen, als wäre sie die letzte, denn
 
 **Du musst nicht immer die Nase vorn haben**  
 > Wenn du dich verbessern willst, sei damit zufrieden, ahnungslos oder dumm zu wirken, wenn es um irrelevante Dinge geht – tue nicht so, als wärst du besonders gescheit. Und wenn dich jemand wichtig findet, misstraue dir selbst.  
+> <font size="-1">(EPIKTET, ENCHIRIDION)</font>  
 
 In einer Welt der Massenmedien, in der wir rund um die Uhr total vernetzt sind, braucht es gehörige Courage, um zu sagen: »Ich weiß nichts davon.« Oder noch provokanter: »Es interessiert mich nicht.« In großen Teilen der Gesellschaft wird vorausgesetzt, dass man über jedes nennenswerte Ereignis Bescheid weiß, jede Episode einer von der Kritik gefeierten Fernsehserie gesehen hat, die Nachrichten ehrfürchtig verfolgt und sich anderen gegenüber als gut informiertes und weltgewandtes Individuum präsentiert.  
 Aber wo ist der Beweis, dass das tatsächlich notwendig ist? Wird diese Verpflichtung von offizieller Seite erzwungen? Oder hast du etwa Angst, dich auf der nächsten Party zu blamieren? Selbstredend schuldest du es deinem Land und deiner Familie, generell über Ereignisse informiert zu sein, die dich direkt betreffen könnten, aber das ist es dann auch.  

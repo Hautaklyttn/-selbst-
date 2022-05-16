@@ -21,3 +21,5 @@ layout: home
 [Diverse](./various.html)
 
 [Diverse 2](./various2.html)
+
+[Zitatsammlung](./zitate.html)
